@@ -1,10 +1,10 @@
 ---
 layout: page
-title: Terapeutická jóga
+title: 'Cvičení jógy '
 permalink: terapeuticka-joga.html
----
 
-Proč právě terapeutická jóga je mou nabídkou? 
+---
+Jógové lekce a nabídka kurzů na stránkách [https://www.joga-frenstat.cz/](https://www.joga-frenstat.cz/ "https://www.joga-frenstat.cz/")
 
 Chci Vám nabídnout komplexní jógovou terapii, která není JEN o dechu nebo JEN o asánách. Na mých hodinách nabízím komplexní cvičení pohybového aparátu se smyslem pro pozornost na nervy, dýchací techniky a relaxační hloubkové techniky.
 
@@ -12,6 +12,4 @@ Budeme společně procvičovat čakry, které jsou nedílnou součástí našich
 
 Efektivně odstraníme následky stresu - nafouklé bříško, potíže s pletí, koncentrací, hormonální výkyvy, pohyblivost a ochablé svalstvo,rozpohybujeme metabolismus a tím nastartujeme hubnutí nebo naopak naučíme se společně nabrat sílu. Mnozí z Vás budou překvapení, jak moc pocítí vlastní svalstvo, které zpevníme a vyladíme pro vaše tělo. Šetrně,ale efektivně a společně můžeme vypracovat tělesnou i duševní stránku a být tak v souladu se sebou samým. Pro to terapeutická jóga, neboli jógová terapie.
 
-Cvičení bude probíhat v max.počtu 3 osob nebo individuálně.
-
-Nově nabízím skupinové cvičení (max. 15 osob) a dětskou jógu ,které budou probíhat v prostorách Komunitního centra Valhala. Po předchozím objednání.
+V novém roce 2019 nabízím Flow jógu, Vinyasa jógu a Hatha jógu,ranní protažení a jógu pro začátečníky :)
