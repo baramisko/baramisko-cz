@@ -4,7 +4,7 @@ title: Terapeutická jóga
 permalink: terapeuticka-joga.html
 
 ---
-Jógové lekce a nabídka kurzů zde :https://www.joga-frenstat.cz/
+Jógové lekce a nabídka kurzů na [www.joga-frenstat.cz](https://www.joga-frenstat.cz "www.joga-frenstat.cz")
 
 Chci Vám nabídnout komplexní jógovou terapii, která není JEN o dechu nebo JEN o asánách. Na mých hodinách nabízím komplexní cvičení pohybového aparátu se smyslem pro pozornost na nervy, dýchací techniky a relaxační hloubkové techniky.
 
@@ -12,11 +12,11 @@ Budeme společně procvičovat čakry, které jsou nedílnou součástí našich
 
 Efektivně odstraníme následky stresu - nafouklé bříško, potíže s pletí, koncentrací, hormonální výkyvy, pohyblivost a ochablé svalstvo,rozpohybujeme metabolismus a tím nastartujeme hubnutí nebo naopak naučíme se společně nabrat sílu. Mnozí z Vás budou překvapení, jak moc pocítí vlastní svalstvo, které zpevníme a vyladíme pro vaše tělo. Šetrně,ale efektivně a společně můžeme vypracovat tělesnou i duševní stránku a být tak v souladu se sebou samým. Pro to terapeutická jóga, neboli jógová terapie.
 
-V roce 2019 pořádáme tyto kurzy : 
+V roce 2019 pořádáme tyto kurzy :
 
-Ranní jóga pro zaměstnané,kteří chtějí nastavit svůj den v souladu s harmonií 
+Ranní jóga pro zaměstnané,kteří chtějí nastavit svůj den v souladu s harmonií
 
-Dopolední jóga protažení a prodýchání pro pracující 
+Dopolední jóga protažení a prodýchání pro pracující
 
 Hatha a Vinyasa jóga pro zdatnější
 
