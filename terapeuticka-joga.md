@@ -14,7 +14,7 @@ Efektivně odstraníme následky stresu - nafouklé bříško, potíže s pletí
 
 V roce 2019 pořádáme tyto kurzy :
 
-* Ranní jóga pro zaměstnané,kteří chtějí nastavit svůj den v souladu s harmonií
+* Ranní jóga pro zaměstnané, kteří chtějí nastavit svůj den v souladu s harmonií
 * Dopolední jóga protažení a prodýchání pro pracující
 * Hatha a Vinyasa jóga pro zdatnější
 * Flow jóga
