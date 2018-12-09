@@ -12,7 +12,7 @@ Budeme společně procvičovat čakry, které jsou nedílnou součástí našich
 
 Efektivně odstraníme následky stresu - nafouklé bříško, potíže s pletí, koncentrací, hormonální výkyvy, pohyblivost a ochablé svalstvo,rozpohybujeme metabolismus a tím nastartujeme hubnutí nebo naopak naučíme se společně nabrat sílu. Mnozí z Vás budou překvapení, jak moc pocítí vlastní svalstvo, které zpevníme a vyladíme pro vaše tělo. Šetrně,ale efektivně a společně můžeme vypracovat tělesnou i duševní stránku a být tak v souladu se sebou samým. Pro to terapeutická jóga, neboli jógová terapie.
 
-V roce 2019 pořádáme tyto kurzy :
+V roce 2019 pořádáme tyto kurzy v krásném podkrovním studiu :
 
 * Ranní jóga pro zaměstnané, kteří chtějí nastavit svůj den v souladu s harmonií
 * Dopolední jóga protažení a prodýchání pro pracující
