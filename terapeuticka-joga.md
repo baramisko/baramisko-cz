@@ -4,9 +4,9 @@ title: Terapeutická jóga
 permalink: terapeuticka-joga.html
 
 ---
-Jógové lekce,nabídka kurzů a přihlášení na: 
+Jógové lekce,nabídka kurzů a přihlášení na:
 
- [www.joga-frenstat.cz](https://www.joga-frenstat.cz "www.joga-frenstat.cz")
+[www.joga-frenstat.cz](https://www.joga-frenstat.cz "www.joga-frenstat.cz")
 
 Chci Vám nabídnout komplexní jógovou terapii, která není JEN o dechu nebo JEN o asánách. Na mých hodinách nabízím komplexní cvičení pohybového aparátu se smyslem pro pozornost na nervy, dýchací techniky a relaxační hloubkové techniky.
 
@@ -22,4 +22,4 @@ V roce 2019 pořádáme tyto kurzy v krásném podkrovním studiu :
 * Flow jóga
 * Jóga pro začátečníky
 
-  ![](/uploads/Ranní jóga-1.jpg)![](/uploads/Ranní jóga-1.jpg)
+  ![](/uploads/Ranní jóga-1.jpg)
