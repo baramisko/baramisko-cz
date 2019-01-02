@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Terapeutická jóga
+title: Terapeutic jóga
 permalink: terapeuticka-joga.html
 
 ---
