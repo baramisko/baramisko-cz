@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Terapeutic jóga
+title: " Jóga Frenštát"
 permalink: terapeuticka-joga.html
 
 ---
