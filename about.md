@@ -15,6 +15,8 @@ V brzké době mne čeká dokončení Bihárské školy jógy. Mám za sebou kur
 
 Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena.
 
+Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť.
+
 ### O mně a anorexii
 
 Když mi bylo dvacet let a zažila jsem s touto nemocí první "rande" dostala jsem se zpátky ke zdraví díky
