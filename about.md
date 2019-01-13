@@ -13,6 +13,8 @@ Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzděláv
 
 V brzké době mne čeká dokončení Bihárské školy jógy. Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga.
 
+Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena.
+
 ### O mně a anorexii
 
 Když mi bylo dvacet let a zažila jsem s touto nemocí první "rande" dostala jsem se zpátky ke zdraví díky
