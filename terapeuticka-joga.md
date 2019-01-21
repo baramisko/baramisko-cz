@@ -22,4 +22,4 @@ V roce 2019 pořádáme tyto kurzy v krásném podkrovním studiu :
 * Flow jóga
 * Jóga pro začátečníky
 
-![](/uploads/Ranní jóga-1.jpg)
+![](/uploads/jjjjjjjj2222.jpg)
