@@ -21,5 +21,3 @@ V roce 2019 pořádáme tyto kurzy v krásném podkrovním studiu :
 * Hatha a Vinyasa jóga pro zdatnější
 * Flow jóga
 * Jóga pro začátečníky
-
-![](/uploads/jjjjjjjj2222.jpg)
