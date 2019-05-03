@@ -7,5 +7,5 @@ order: 50
 ---
 Ceník mých služeb:
 
-* Poradenství - 400 Kč za 1 hodinu  (studenti mají možnost slevy).
+* Poradenství - dohodou
 * Ceny jógy a lekce na www.joga-frenstat.cz
