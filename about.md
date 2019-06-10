@@ -2,7 +2,7 @@
 layout: page
 title: O mně
 permalink: bara-misko.html
-order: 100
+order: "100"
 
 ---
 ### O mně a józe
@@ -40,4 +40,4 @@ Z kurzů a výcviků jsem absolvovala:
 * Poruchy příjmu potravy
 * Práce s dětmi z pěstounské péče
 
-  ![](/uploads/Photo3013n.jpg)
+  ![](/uploads/58442268_147588362953784_4686603193101058048_o.jpg)
