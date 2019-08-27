@@ -7,7 +7,7 @@ order: "50"
 ---
 Ceník mých služeb:
 
-* Poradenství - dohodou
+* Poradenství - dohodou v rozmezí 400,- - 600,-
 * Ceny jógy a lekce na www.joga-frenstat.cz
 * Nově nabídka aromaterapeutické ajurvédské masáže ( otevřeno ke konci roku 2019 )
 
