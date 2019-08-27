@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Ceník
+title: Nabídka masáží, ceník
 permalink: cenik.html
 order: "50"
 
