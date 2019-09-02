@@ -9,7 +9,7 @@ Ceník mých služeb:
 
 * Poradenství - dohodou v rozmezí 400,- - 600,-
 * Ceny jógy a lekce na www.joga-frenstat.cz
-* Nově nabídka aromaterapeutické ajurvédské masáže ( otevřeno ke konci roku 2019 )
+* Nabídka aromaterapeutické ajurvédské masáže ( otevřeno ke konci roku 2019 )
 
   Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
 
@@ -21,4 +21,4 @@ Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, po
 
 Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru.
 
-Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.
+Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram.jpg)
