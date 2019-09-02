@@ -11,6 +11,10 @@ Ceník mých služeb:
 * Ceny jógy a lekce na www.joga-frenstat.cz
 * Nově nabídka aromaterapeutické ajurvédské masáže ( otevřeno ke konci roku 2019 )
 
+  Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
+
+Pouze pro ženy nabízím : ( s muži po předešlé domluvě )
+
 Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání.
 
 Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, povolení bolesti kloubů,práce s energií 600 ,- Kč
