@@ -5,6 +5,8 @@ permalink: cenik.html
 order: "50"
 
 ---
+![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram.jpg)
+
 Ceník mých služeb:
 
 * Poradenství - dohodou v rozmezí 400,- - 600,-
@@ -21,4 +23,4 @@ Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, po
 
 Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru.
 
-Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.![](/uploads/Ayurvedic-Massage-and-Spa-Thiruvananthapuram.jpg)
+Masáž může být i zcela nevonná, pokud někdo trpíte na bolesti hlavy a na ,,pachy,, a vůně,tak Vás nechám unést do krajiny odpočinku nevonným olejem.
