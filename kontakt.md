@@ -7,7 +7,7 @@ order: "100"
 ---
 ### Jak se objednat?
 
-* emailem na <a href="mailto:bara.nyja@seznam.cz">bara.nyja@seznam.cz</a>
+* emailem na <a href="mailto:Bara.Nyja@seznam.cz">Bara.Nyja@seznam.cz</a>
 * nebo telefonicky na <a href="tel:+420608350759">608 350 759</a>
 
 ### Kde mě najdete?
