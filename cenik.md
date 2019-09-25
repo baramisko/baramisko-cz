@@ -11,7 +11,7 @@ Ceník mých služeb:
 
 * Poradenství - dohodou v rozmezí 400,- - 600,-
 * Ceny jógy a lekce na www.joga-frenstat.cz
-* Nabídka aromaterapeutické ajurvédské masáže ( otevřeno ke konci roku 2019 )
+* Nabídka aromaterapeutické ajurvédské masáže 
 
   Masáže jsou velmi vhodné pro všechny, kteří se chtějí zbavit napětí, nemohou se plně věnovat aktivnímu sportu, cítí nepříjemný tlak v těle, snaží se o miminko a ono nepřichází, masáž je vhodná zcela pro všechny, kteří chtějí.
 
