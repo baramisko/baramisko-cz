@@ -5,6 +5,24 @@ permalink: bara-misko.html
 order: "100"
 
 ---
+## O mně a mně
+
+Celý život kroužím okolo vůní, energií, péče o těla a ducha a tak jsem po letech v sociálních službách, práce s dětmi, lidmi, se závislými na různých vnějších vjemů opustila instituty a vrhla se do vlastního světa.
+
+Světa masáží
+
+Světa jógy
+
+Světa vůní 
+
+Světa energií
+
+Světa, kde se eliminuje napětí, stres, strach, nemoce...
+
+Mým domovem je příroda, les, chaloupka v něm, potok, dvě kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
+
+Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu.
+
 ### O mně a józe
 
 www.joga-frenstat.cz
