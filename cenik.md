@@ -19,9 +19,9 @@ Gua Sha ( kvaša ) masáží obličeje ,se zbavíte přebytečných **tekutin z 
 
 Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obličeji. Viditelných výsledků dosáhnete už za 10-12 dní. Doba trvání cca 30-40 minut 350,-- 450,-
 
-Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání.
+Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání. (nemusí být, mám i neutrální esence)
 
-Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, povolení bolesti kloubů,práce s energií 600 ,- Kč
+Hodinová masáž - masáž proti bolesti ,tlaku v hlavě, uvolnění svalů, povolení bolesti kloubů,práce s energií 750 ,- Kč
 
 Masáž obličeje,šíje,hlavy 30 minut 350 ,- Kč , aromaterapie na vaší míru.
 
