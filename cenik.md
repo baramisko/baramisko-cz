@@ -17,6 +17,8 @@ Ceník mých služeb:
 
 Gua Sha ( kvaša ) masáží obličeje ,se zbavíte přebytečných **tekutin z tkání** (oteklých víček), **zlepšíte prokrvení pokožky**, **pleť zůstane napnutá** a **pružná.** Navíc redukuje vrásky, obnovuje kontury obličeje a **zbavuje toxických látek.**
 
+![](/uploads/young-woman-have-face-treatment-at-beauty-clinic-royalty-free-image-1568140532.jpg)
+
 Má rovněž **pozitivní vliv na psychiku** a zásadně snižuje napětí v obličeji. Viditelných výsledků dosáhnete už za 10-12 dní. Doba trvání cca 30-40 minut 350,-- 450,-
 
 Dvou hodinová masáž 1100 ,- Kč ( nohy, ruce, záda, krk, hlava, obličej, hrudník, celková masáž , celého těla ) s olejem přímo pro vás po předešlém povídání. (nemusí být, mám i neutrální esence)
