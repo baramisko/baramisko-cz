@@ -13,13 +13,13 @@ Světa masáží
 
 Světa jógy
 
-Světa vůní 
+Světa vůní
 
 Světa energií
 
 Světa, kde se eliminuje napětí, stres, strach, nemoce...
 
-Mým domovem je příroda, les, chaloupka v něm, potok, dvě kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
+Mým domovem je příroda, les, chaloupka v něm, potok, tři kočky, můj muž, má rodina, klid a učení se k navrácení se k sobě, do nitra.
 
 Bude mi ctí s Vámi projít cestu k poznání sebe, v mužském i ženském aspektu.
 
@@ -33,19 +33,11 @@ Mou učitelkou, přítelem v józe a mentorkou jógy je [Eva Berkana](http://www
 
 Inspirací na mé cestě je Srí Sv. Gitanánda, díky kterému se sebevzdělávám denně řadu let a je mi neustále obrovským darem, dále je to pan [Eduard Tomáš](https://cs.wikipedia.org/wiki/Eduard_Tom%C3%A1%C5%A1) a také [Srí Chinmoy](https://cs.wikipedia.org/wiki/%C5%A0r%C3%AD_%C4%8Cinmoj), jejichž slova a meditace aplikuji denně. Jsem absolventkou mnoha jógových seminářů a cest do zemí, kdy jsem měla možnost okusit pravou podstatu jógového života, jakou byl např. Nepál. Obrovským přínosem pro vzdělání jsou mi víkendové kurzy jógy Evy Svobodové Kizekové(jogasevou.cz), při kterém jsem měla možnost nahlédnout i do reflexní terapie ajurvédských masáží. Intenzivně jóguji přes pět let.
 
-V brzké době mne čeká dokončení Bihárské školy jógy. Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga.
+Mám za sebou kurz Hatha a Vinyasa jógy a také mne čeká kurz jógy vědomí neboli Kundalíni jóga.
 
 Na mé cestě se neustále vzdělávám. Jóga není jen o asánách,neboli o tělesnu, není jen o dechu čili pranajámatických cvičení, je to komplexní dar duchovních učitelů a já s největší pokorou a úctou ráda předávám znalosti,kterými jsem byla obohacena.
 
 Mým každodenním chlebem v józe je cesta Patanjalího a jógasuter,které mi ucelují životní pouť.
-
-### O mně a anorexii
-
-Když mi bylo dvacet let a zažila jsem s touto nemocí první "rande" dostala jsem se zpátky ke zdraví díky
-mým přátelům manželům Šmířákovým. Uvědomění si a přiznání si, že touto nemocí trpím byl prvním
-krokem k uzdravení se. Ukončovala jsem studium Sociální práce a na několik let se nemoci zbavila,
-bohužel mne tato zákeřná, vleklá nemoc postihla během let ještě dvakrát. Rozhodla jsem se tedy vyhledat
-odbornou pomoc a dostala se k [Bibianě Hubálkové](https://www.bibihubalkova.cz), které mi byla cestou k pochopení mé cesty vlastní. Za její pomoci a po absolvování psychosomatického kurzu, jsem si uvědomila,že chci pomoci i ostatním s tímto těžkým problémem. Pracuji jako sociální pracovnice pro děti a mládež a řada mých klientů se s anorexií setkává od dětství po dospělost. Cítím obrovskou touhu a ta je mým nábojem pomoci lidem trpící touto nemocí. Nejsem lékař ani psycholog, mohu však šetrně, ohleduplně a komplexně pomoci vyřešit tuto poruchu mysli a najít společné řešení k normální životu. Je to dlouhá a mnohdy náročná cesta, chce to trpělivost, odvahu a porozumění, které u mne můžete naleznout. Dnes mám s anorexií utrum, nebo spíše ona se mnou, díky doléčení se můžu zase běhat maratony, předcvičovat jógu a vést spokojený plnohodnotný život, mým obrovským snem je předat toto všem těm kteří potřebují pomoci nalézt sami sebe.
 
 Sebevzdělávání a moje práce je náplní k odborným znalostem.
 Mám vystudovanou Sociálně výchovnou činnost v Ostravě.
