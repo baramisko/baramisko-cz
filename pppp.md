@@ -1,7 +1,6 @@
 ---
 layout: page
-title: 'Poradenství '
-permalink: pppp-poradenstvi-v-poruchach-prijmu-potravy.html
+title: Služby
 order: "20"
 
 ---
