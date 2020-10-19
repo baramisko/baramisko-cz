@@ -1,7 +1,7 @@
 ---
 layout: page
 title: O mně
-permalink: bara-misko.html
+permalink: bara-nyja.html
 order: "100"
 
 ---
