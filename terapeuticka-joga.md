@@ -10,7 +10,13 @@ Masáž dle výběru 60´ 650,- , 90´ 950,-
 
 Terapie 50´ 500,- každá další půl hodina 100,-
 
-Léčení
+Léčba , základní hodina 650,- podle náročnosti a délky procesu
+
+Čištění , osoba 500,- každá další osoba 400,-/ hodina, např v jedné domácnosti.
+
+Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 1700,- / hodina
+
+Práce se zvířetem dle domluvy
 
 Jógové lekce, nabídka kurzů a přihlášení na:
 
