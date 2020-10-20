@@ -40,6 +40,8 @@ Prostřednictvím předků, zemřelých, duše....
 
 Rituály vykuřování na míru.
 
+Čištění je velmi individuální proces při kterém každém jednotlivě upřednostňuji jiné techniky.
+
 Osob, domů, obydlí, prostor.
 
 Pracuji rovněž se zvířaty, které se bojí, jsou nemocné, agresivní, nespolupracují.
@@ -50,6 +52,6 @@ Nemohu zaručit příchod chtěného dítěte, pokud se v rodině nezačne praco
 
 Nemohu odehnat duše z domu, pokud je tam držíte žalem ze ztráty Vy sami.
 
-Vše je velmi křehké a individuální. 
+Vše je velmi křehké a individuální.
 
 Na podrobnosti se prosím ptejte.
