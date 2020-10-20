@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Nabídka služeb,ceník
+title: Články a videa
 permalink: cenik.html
 order: "50"
 
