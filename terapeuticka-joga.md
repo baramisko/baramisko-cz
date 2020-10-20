@@ -10,11 +10,13 @@ Masáž dle výběru 60´ 650,- , 90´ 950,-
 
 Terapie 50´ 500,- každá další půl hodina 100,-
 
-Léčba , základní hodina 650,- podle náročnosti a délky procesu
+Léčba , základní hodina 500,- podle náročnosti a délky procesu
 
 Čištění , osoba 500,- každá další osoba 400,-/ hodina, např v jedné domácnosti.
 
-Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 1700,- / hodina
+Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 1500,- / hodina, každá další půl hodina 500,-.
+
+Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥
 
 Práce se zvířetem dle domluvy
 
