@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Články a videa
+title: Masáže, terapie, léčba
 order: "20"
 
 ---
