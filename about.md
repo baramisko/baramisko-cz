@@ -29,7 +29,7 @@ Podle Matěje Stryjkowského byl žádán o déšť a o zahnání špatného po�
 
 Jeho ,,pracovištěm,, byla louka se zvířaty a lidmi, které odváděl do světa mrtvých a zbloudilé duše naváděl ke správnému směru. Pracoval s revenanty apod.
 
-S těmito jevy, příhodami, intuicí vedenými vjemy pracuji od malička.
+S těmito jevy, příhodami, intuicí vedenými vjemy pracuji od malička. Včetně astrálním poznání cest. O kterém se dočtete ve článku v sekci články.
 
 Dále však své vlastní zkušenosti s léčením, terapiií apod. psát nebudu, nejlepší je osobní zkušenost a případná oboustranná spolupráce a pomoc.
 
