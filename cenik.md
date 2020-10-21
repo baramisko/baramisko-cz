@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Články a videa
-permalink: cenik.html
+permalink: clanky.html
 order: "50"
 
 ---
