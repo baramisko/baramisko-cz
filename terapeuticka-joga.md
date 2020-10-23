@@ -18,7 +18,7 @@ Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 2000,-,
 
 Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥
 
-Práce se zvířetem dle domluvy
+Práce se zvířetem dle domluvy cena.
 
 Peníze beru jako směnný obchod, kdybych žila v jiné době, dali byste mi třeba domácí vejce či maso :) proto pokud Vám přijde cena vysoká nebo naopak nízká, tak se můžeme domluvit ,dle toho ,co očekáváte a co očekávám já.
 
