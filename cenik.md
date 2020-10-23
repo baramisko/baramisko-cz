@@ -34,3 +34,5 @@ Několikrát se mi stalo totiž, že jsem měla nutkání aspoň říci : ,,hele
 A proto to sděluji.
 
 A proto věřím, že se najde mezi námi všemi několik nás, co to cítí stejně jako já. Stejně jako já, vidí, slyší, vnímají a třeba jen neví co s tím. A třeba se bojí intuice a nebo jí přehlušili osobně, kvůli osobním vjemům a přístupu a potřebují jen nadhled intuice jiné osoby.
+
+## Rituály a ceremonie, jako každodenní pomocník
