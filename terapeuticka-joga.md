@@ -8,7 +8,7 @@ Nabízené služby si cením takto:
 
 Masáž dle výběru 60´ 650,- , 90´ 950,-
 
-Terapie 50´ 500,- každá další půl hodina 100,-
+Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up, platba předem na účet a domluvíme termín vyhovující oběma stranám.
 
 Léčba , základní hodina 500,- podle náročnosti a délky procesu
 
@@ -23,3 +23,5 @@ Práce se zvířetem dle domluvy
 Jógové lekce, nabídka kurzů a přihlášení na:
 
 [www.joga-frenstat.cz](https://www.joga-frenstat.cz "www.joga-frenstat.cz")
+
+Nejsem plátce DPH a nespolupracuji s pojišťovnama.
