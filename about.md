@@ -60,5 +60,3 @@ Z kurzů a výcviků jsem absolvovala:
 * Úzkostné a psychosomatické projevy u dětí a mládeže
 * Poruchy příjmu potravy
 * Práce s dětmi z pěstounské péče
-
-  ![](/uploads/58442268_147588362953784_4686603193101058048_o.jpg)
