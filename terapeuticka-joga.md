@@ -14,7 +14,7 @@ Léčba , základní hodina 500,-800,- podle náročnosti a délky procesu, max.
 
 Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny. Čištění např. páru společně 1300,- 
 
-Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 1500,- / hodina, každá další půl hodina 500,-.
+Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 2000,-, každá další půl hodina nad dvě hodiny času 500,-.
 
 Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥
 
