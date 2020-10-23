@@ -26,7 +26,7 @@ Slovem přes skype nebo whats up.
 
 Mailová korespondence.
 
-Terapie se týká témat blízkých krize, spirituální krize, poruch příjmu potravy, úzkosti, sebepoškozování...
+Terapie se týká témat blízkých krize, spirituální krize, poruch příjmu potravy, úzkosti, sebepoškozování..
 
 Léčba
 
