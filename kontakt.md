@@ -17,3 +17,5 @@ Poradna je na adrese: <br/> <span class = "vcard"> <span class = "adr"> <span cl
 Vstup je přímo z náměstí, vchod je v budově vedle kavárny Fortissimo.
 
 <img src = "assets / img / bara-misko-frenstat-havlickova.png" />
+
+Provozovna je nyní z důvodu nařízení vlády uzavřena, prosím kontaktujte mne a domluvíme se na setkání.
