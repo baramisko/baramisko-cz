@@ -19,7 +19,7 @@ Oddala svůj život Bohu a proto byla navždy pannou, stejně jako já jsem ve z
 
 Sv. Barbora se volá při katastrofách, požárech, mučení, epidemií a proto je uctívána jako ochránkyně proti smrti bleskem, [požáry](https://cs.wikipedia.org/wiki/Po%C5%BE%C3%A1r "Požár") a vůbec před rizikem náhlé či násilné smrti, je proto patronka havířů, dělostřelců, pyrotechniků, architektů, matematiků a dalších rizikových povolání, a rovněž dětí.
 
-Jméno Nyja mi přišlo v meditaci.
+Jméno Nyja mi přišlo v meditaci. Také jsem slyšela Nilla,Nilló, což znamená např. v Nepálštině modrá.
 
 ![](/uploads/img_20201002_113159.jpg)
 
@@ -35,9 +35,13 @@ Jeho ,,pracovištěm,, byla louka se zvířaty a lidmi, které odváděl do svě
 
 S těmito jevy, příhodami, intuicí vedenými vjemy pracuji od malička. Včetně astrálním poznání cest. O kterém se dočtete ve článku v sekci články.
 
+Proč modrá? Je to moje osobní barva, barva, která mne provází nejen na této zemi :)
+
 Dále však své vlastní zkušenosti s léčením, terapiií apod. psát nebudu, nejlepší je osobní zkušenost a případná oboustranná spolupráce a pomoc.
 
 Sebevzdělávání a moje práce je náplní k odborným znalostem. Mám vystudovanou Sociálně výchovnou činnost v Ostravě.
+
+Pracovala jsem v institucích zabývajících se mládeží , dětma a dospívajícími, dospělými s problémy, závislostmi, nemocemi mysli i těla. Odešla jsem, protože považuji některé služby za ,,medvědí,, chci se věnovat člověku individuálně a dobrovolně z obou stran.
 
 Z kurzů a výcviků jsem absolvovala:
 
