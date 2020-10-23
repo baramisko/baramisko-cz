@@ -4,6 +4,8 @@ title: Masáže, terapie, léčba, čištění
 order: "20"
 
 ---
+Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k podstatě a ke kořenům.
+
 Masáže
 
 Pracuji s měkkými technikami, ajurvédskými technikami, reflexními prvky a aromaterapií. Masáž je celková , otevře bolest ale společně bolest odstraníme ,nebo popracujeme na jejím dlouhodobém odstranění.
