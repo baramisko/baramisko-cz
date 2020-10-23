@@ -39,6 +39,12 @@ Proč modrá? Je to moje osobní barva, barva, která mne provází nejen na té
 
 Dále však své vlastní zkušenosti s léčením, terapiií apod. psát nebudu, nejlepší je osobní zkušenost a případná oboustranná spolupráce a pomoc.
 
+Věnuji se od svých 14 ti let, tarotu, šamanství, rituálům, lucidním snům, práci se sny, práci s vizemi, nepovažuji se za psychiatra ani neléčím léky, snažím se najít cestu duše ke zdraví. Nedostudovala jsem Psychologii v Ostravě na VŠ, protože jsem se osamostatnila a proto je má cesta i jiná, než typická.
+
+Z ,,mysteriózních,, cest mám za sebou např. regresivní terapie, holotropní dýchání, sebeterapii v poruchách příjmu potravy aj.
+
+Nejhezčí mysteriózní cestou byla cesta do Nepálu, kde jsem doma stejně jako v Beskydech, kde žiju v malé chaloupce.
+
 Sebevzdělávání a moje práce je náplní k odborným znalostem. Mám vystudovanou Sociálně výchovnou činnost v Ostravě.
 
 Pracovala jsem v institucích zabývajících se mládeží , dětma a dospívajícími, dospělými s problémy, závislostmi, nemocemi mysli i těla. Odešla jsem, protože považuji některé služby za ,,medvědí,, chci se věnovat člověku individuálně a dobrovolně z obou stran.
