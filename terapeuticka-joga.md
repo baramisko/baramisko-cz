@@ -10,7 +10,7 @@ Masáž dle výběru 60´ 650,- , 90´ 950,-
 
 Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up, platba předem na účet a domluvíme termín vyhovující oběma stranám.
 
-Léčba , základní hodina 500-800,- podle náročnosti a délky procesu 
+Léčba , základní hodina 500,-800,- podle náročnosti a délky procesu 
 
 Čištění , osoba 500,- každá další osoba 400,-/ hodina, např v jedné domácnosti.
 
