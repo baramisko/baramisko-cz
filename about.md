@@ -43,6 +43,8 @@ Věnuji se od svých 14 ti let, tarotu, šamanství, rituálům, lucidním snům
 
 Z ,,mysteriózních,, cest mám za sebou např. regresivní terapie, holotropní dýchání, sebeterapii v poruchách příjmu potravy aj.
 
+Tím, že žiji částečně na samotě v lese, se mysl může koncentrovat a nadechnout a vidět i se zavřenýma očima.
+
 Workshopů a přednášek je milión, já se to snažím především žít v praxi, nestačí si přečíst knihu a nic s informacemi nedělat, musí se to žít!
 
 Nejhezčí mysteriózní cestou byla cesta do Nepálu, kde jsem doma stejně jako v Beskydech, kde žiju v malé chaloupce.
