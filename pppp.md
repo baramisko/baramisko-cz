@@ -52,7 +52,7 @@ Pracuji rovněž se zvířaty, které se bojí, jsou nemocné, agresivní, nespo
 
 Nemohu odvolat smrt, pro ty pro které si přišla v jejich čas.
 
-Nemohu zaručit příchod chtěného dítěte, pokud se v rodině nezačne pracovat do hloubky.
+Nemohu zaručit příchod chtěného dítěte, pokud se v rodině nezačne pracovat do hloubky, rovněž nejsem lékař a nemohu diagnostikovat ,ani určit přesnou příčinu.
 
 Nemohu odehnat duše z domu, pokud je tam držíte žalem ze ztráty Vy sami.
 
