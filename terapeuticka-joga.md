@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Ceník a přístup
+title: " Nabídka cen"
 permalink: terapeuticka-joga.html
 
 ---
