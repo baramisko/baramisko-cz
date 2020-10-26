@@ -1,6 +1,6 @@
 ---
 layout: page
-title: O mně
+title: O nás...
 permalink: bara-nyja.html
 order: "100"
 
