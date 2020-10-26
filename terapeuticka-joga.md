@@ -6,13 +6,13 @@ permalink: terapie-lecba.html
 ---
 Nabízené služby si cením takto:
 
-Masáž dle výběru 60´ 650,- , 90´ 950,-
+Masáž dle výběru(část těla, nebo celková) 60´ 650,- , 90´ 950,-
 
 Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up, platba předem na účet a domluvíme termín vyhovující oběma stranám.
 
 Léčba , základní hodina 500,-800,- podle náročnosti a délky procesu, max. dvě hodiny.
 
-Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny. Čištění např. páru společně 1300,- 
+Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny. Čištění např. páru společně 1300,-
 
 Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 2000,-, každá další půl hodina nad dvě hodiny času 500,-.
 
