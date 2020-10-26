@@ -1,6 +1,6 @@
 ---
 layout: page
-title: " Nabídka cen"
+title: " Nabídka služeb"
 permalink: terapeuticka-joga.html
 
 ---
