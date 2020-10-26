@@ -51,7 +51,7 @@ Nejhezčí mysteriózní cestou byla cesta do Nepálu, kde jsem doma stejně jak
 
 Sebevzdělávání a moje práce je náplní k odborným znalostem. Mám vystudovanou Sociálně výchovnou činnost v Ostravě.
 
-Pracovala jsem v institucích zabývajících se mládeží , dětma a dospívajícími, dospělými s problémy, závislostmi, nemocemi mysli i těla. Odešla jsem, protože považuji některé služby za ,,medvědí,, chci se věnovat člověku individuálně a dobrovolně z obou stran.
+Pracovala jsem v institucích zabývajících se mládeží , dětma a dospívajícími, dospělými s problémy, závislostmi, nemocemi mysli i těla. Odešla jsem, protože považuji některé služby za ,,medvědí,, chci se věnovat člověku individuálně a především dobrovolně z obou stran.
 
 Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k podstatě a ke kořenům.
 
