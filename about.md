@@ -15,7 +15,7 @@ Sv. Barbora byla patronka horníků - čili světlonošů -byla zabita vlastním
 
 Byla zasvěcená do pohanských rituálů stejně tak, jako do křesťanské nauky a nejsvětější trojice.
 
-Oddala svůj život Bohu a proto byla navždy pannou, stejně jako já jsem ve znamení panny.
+Oddala svůj život Bohu a proto byla navždy pannou, stejně jako já jsem ve znamení panny :)
 
 Sv. Barbora se volá při katastrofách, požárech, mučení, epidemií a proto je uctívána jako ochránkyně proti smrti bleskem, [požáry](https://cs.wikipedia.org/wiki/Po%C5%BE%C3%A1r "Požár") a vůbec před rizikem náhlé či násilné smrti, je proto patronka havířů, dělostřelců, pyrotechniků, architektů, matematiků a dalších rizikových povolání, a rovněž dětí.
 
