@@ -63,3 +63,4 @@ Z kurzů a výcviků jsem absolvovala:
 * Poruchy příjmu potravy
 * Práce s dětmi z pěstounské péče
 * Ajurvédská masáž
+* Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti
