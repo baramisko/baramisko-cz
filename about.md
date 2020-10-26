@@ -37,7 +37,7 @@ S těmito jevy, příhodami, intuicí vedenými vjemy pracuji od malička. Včet
 
 Proč modrá? Je to moje osobní barva, barva, která mne provází nejen na této zemi :)
 
-Dále však své vlastní zkušenosti s léčením, terapiií apod. psát nebudu, nejlepší je osobní zkušenost a případná oboustranná spolupráce a pomoc.
+Dále však své vlastní zkušenosti s léčením, terapií apod. psát nebudu, nejlepší je osobní zkušenost a případná oboustranná spolupráce a pomoc.
 
 Věnuji se od svých 14 ti let, tarotu, šamanství, rituálům, lucidním snům, práci se sny, práci s vizemi, nepovažuji se za psychiatra ani neléčím léky, snažím se najít cestu duše ke zdraví. Nedostudovala jsem Psychologii v Ostravě na VŠ, protože jsem se osamostatnila a proto je má cesta i jiná, než typická.
 
