@@ -1,7 +1,7 @@
 ---
 layout: page
 title: " Nabídka služeb"
-permalink: terapeuticka-joga.html
+permalink: terapie-lecba.html
 
 ---
 Nabízené služby si cením takto:
