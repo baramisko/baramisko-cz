@@ -4,6 +4,8 @@ title: " Nabídka služeb"
 permalink: terapie-lecba.html
 
 ---
+O konkrétním detailu dané služby se dočtete v sekci masáže, léčba, čištění...
+
 Nabízené služby si cením takto:
 
 Masáž dle výběru(část těla, nebo celková) 60´ 650,- , 90´ 950,-
