@@ -28,17 +28,17 @@ Slovem přes skype nebo whats up.
 
 Mailová korespondence.
 
-Terapie se týká témat blízkých krize, spirituální krize, poruch příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost...
+Terapie se týká témat blízkých krize, spirituální krize, poruch příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost, neurózy, rodové linie...
 
 **_Léčba_**
 
-Dotykem.
+Dotykem. Většinou se dotknu nohou či hlavy, dlaní.
 
-Energií.
+Energií. Prostřednictvím sebe a Vás a napojením se na naše ,,vyšší vědomí,, můžeme odstranit bolesti jak z fyzické, či psychické roviny, různě zděděné vzorce, pomoci s procesem znovuzrození se do větší duchovní pohody.
 
 Napojením se.
 
-Prostřednictvím předků, zemřelých, duše....
+Prostřednictvím předků, zemřelých, duše....Někdy se stane ,že během léčby či čištění jsou povoláni ať už sami od sebe nebo vámi vaši předci, ti kteří vám chtějí něco sdělit a pomoci vám.
 
 **_Čištění_**
 
