@@ -28,4 +28,4 @@ Jógové lekce, nabídka kurzů a přihlášení, recenze :
 
 [www.joga-frenstat.cz](https://www.joga-frenstat.cz "www.joga-frenstat.cz")
 
-Nejsem plátce DPH a nespolupracuji s pojišťovnama.
+Nejsem plátce DPH a nespolupracuji s pojišťovnami.
