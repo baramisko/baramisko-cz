@@ -14,7 +14,9 @@ Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up,
 
 Léčba , základní hodina 500,-800,- podle náročnosti a délky procesu, max. dvě hodiny.
 
-Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny. Čištění např. páru společně 1300,-
+tyto dva procesy spolu úzce souvisí
+
+Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny.
 
 Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 2000,-, každá další půl hodina nad dvě hodiny času 500,-.
 
