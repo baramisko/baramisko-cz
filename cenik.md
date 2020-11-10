@@ -13,6 +13,8 @@ Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
 [https://www.youtube.com/watch?v=HFbfJcwEGjA&list=WL&index=38](https://www.youtube.com/watch?v=HFbfJcwEGjA&list=WL&index=38 "https://www.youtube.com/watch?v=HFbfJcwEGjA&list=WL&index=38") Pan Dušek, Paní Máslová, o věcech skrytých
 
+[https://www.youtube.com/watch?v=olityIMMvGo&list=LL&index=20](https://www.youtube.com/watch?v=olityIMMvGo&list=LL&index=20 "https://www.youtube.com/watch?v=olityIMMvGo&list=LL&index=20") O každodenním folklóru a rituálech s Ramonou Siringlem
+
 ### **_Intuice jako nástroj pomocný_**
 
 Mnoha z nás slyšela za svůj život, jdi a poslechni intuici.
