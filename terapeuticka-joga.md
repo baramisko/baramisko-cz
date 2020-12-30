@@ -18,7 +18,7 @@ a druhý termín 5-7.3.2021
 
 Pokud by se pobytu z důvodu nařízení vlády nekonaly, zálohy se Vám automaticky přesouvají na další možný termín, s neomezenou platností roku 2021.
 
-O konkrétním detailu dané služby se dočtete v sekci masáže, léčba, čištění...
+**O konkrétním detailu dané služby se dočtete v sekci masáže, léčba, čištění...**
 
 Nabízené služby si cením takto:
 
@@ -28,11 +28,13 @@ Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up,
 
 Léčba , základní hodina 500,-800,- podle náročnosti a délky procesu, max. dvě hodiny. Cenu nenavyšuji.
 
-tyto dva procesy spolu úzce souvisí
+_tyto dva procesy spolu úzce souvisí_
 
 Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny. Cenu nenavyšuji.
 
 Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 2000,-, každá další půl hodina nad dvě hodiny času 500,-.
+
+V potaz beru jak cestu tam i zpět, vlastní energii a energii vynaloženou na proces.
 
 Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥
 
