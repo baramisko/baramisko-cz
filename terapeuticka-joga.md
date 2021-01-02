@@ -1,6 +1,6 @@
 ---
 layout: page
-title: " Nabídka služeb"
+title: Ceník...
 permalink: terapie-lecba.html
 
 ---
