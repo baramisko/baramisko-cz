@@ -7,6 +7,8 @@ order: "50"
 ---
 Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
+[https://www.youtube.com/watch?v=Q9tIeRQtkBw](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Akar Rasol, Jaroslav Grunwald - o životě v těle, jak žít, jak si tvořit vlastní realitu, příjmání
+
 [https://www.youtube.com/watch?v=Od2QQ-ivzV4](https://www.youtube.com/watch?v=Od2QQ-ivzV4 "https://www.youtube.com/watch?v=Od2QQ-ivzV4") Pan Drábek, Paní Vlková, odvádění duší nejen.
 
 [https://www.youtube.com/watch?v=sOJzI2fo6ak](https://www.youtube.com/watch?v=sOJzI2fo6ak "https://www.youtube.com/watch?v=sOJzI2fo6ak") Pan Ordelt, Paní Vlková, jak slavit dušičky
