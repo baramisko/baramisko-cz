@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Masáže, terapie, léčba, čištění
+title: Terapie...
 order: "20"
 
 ---
