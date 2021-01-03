@@ -18,7 +18,7 @@ _a druhý termín 5-7.3.2021_
 
 _Pokud by se pobytu z důvodu nařízení vlády nekonaly, zálohy se Vám automaticky přesouvají na další možný termín, s neomezenou platností roku 2021._
 
-**O konkrétním detailu dané služby se dočtete v sekci masáže, léčba, čištění...**
+**O konkrétním detailu dané služby se dočtete v sekci terapie**
 
 _Nabízené služby si cením takto:_
 
