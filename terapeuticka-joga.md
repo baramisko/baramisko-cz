@@ -26,7 +26,7 @@ _Nabízené služby si cením takto:_
 
 _Masáž dle výběru(část těla, nebo celková) 60´ 650,- , 90´ 950,-_
 
-_Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up, platba předem na účet a domluvíme termín vyhovující oběma stranám. Samozřejmě se dle situace nejlépe sejít osobně._
+_Terapie 50´ 500,- každá další půl hodina 100,-, přes skype, či whats up, platba předem na účet a domluvíme termín vyhovující oběma stranám. Samozřejmě se dle situace (vládního nařízení) nejlépe sejít osobně._
 
 _Léčba , základní hodina 500,-800,- podle náročnosti a délky procesu, max. dvě hodiny. Cenu nenavyšuji._
 
