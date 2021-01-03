@@ -7,8 +7,6 @@ order: "100"
 ---
 Jméno, které mi dali rodiče je Barbora.
 
-![](/uploads/1567057213409.jpg)
-
 Souzním s ním v mnoha ohledech
 
 Sv. Barbora byla patronka horníků - čili světlonošů -byla zabita vlastním otcem, setnul jí hlavu mečem, protože se nechtěla vzdát svého Boha ve kterého věřila.
@@ -20,8 +18,6 @@ Oddala svůj život Bohu a proto byla navždy pannou, stejně jako já jsem ve z
 Sv. Barbora se volá při katastrofách, požárech, mučení, epidemií a proto je uctívána jako ochránkyně proti smrti bleskem, [požáry](https://cs.wikipedia.org/wiki/Po%C5%BE%C3%A1r "Požár") a vůbec před rizikem náhlé či násilné smrti, je proto patronka havířů, dělostřelců, pyrotechniků, architektů, matematiků a dalších rizikových povolání, a rovněž dětí.
 
 Jméno Nyja mi přišlo v meditaci. Také jsem slyšela Nilla,Nilló, což znamená např. v Nepálštině modrá.
-
-![](/uploads/img_20201002_113159.jpg)
 
 Také s ním souzním.
 
