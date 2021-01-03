@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Terapie...
+title: Terapie
 order: "20"
 
 ---
