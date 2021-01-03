@@ -53,6 +53,8 @@ _Pracovala jsem v institucích zabývajících se mládeží , dětma a dospíva
 
 _Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k podstatě a ke kořenům._
 
+_Jsem napojena na Serafinské mistry a ač jsou velmi přísní a vzdálení, snažím se jim hluboce naslouchat._
+
 _Z kurzů a výcviků jsem absolvovala:_
 
 * _Psychiatrické minimum_
