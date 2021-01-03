@@ -4,6 +4,8 @@ title: Ceník
 permalink: terapie-lecba.html
 
 ---
+AKTUALITY
+
 _Služby jsou momentálně pozastaveny_
 
 _Lze se hlásit na pobyt na Antariku ve dvou termínech :_
