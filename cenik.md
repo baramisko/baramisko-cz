@@ -5,6 +5,8 @@ permalink: clanky.html
 order: "50"
 
 ---
+![](/uploads/angeltarot2_2nd-1.jpg)
+
 _Jednou týdně v mém prostoru studia pracuji nejen s tarotovými kartami, lze se po hodině hlásit na tyto termíny:_
 
 _Pokud není domluveno jinak, každé úterý :_
