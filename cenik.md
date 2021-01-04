@@ -1,10 +1,11 @@
 ---
 layout: page
-title: Články a videa
+title: Výklad tarotu
 permalink: clanky.html
 order: "50"
 
 ---
+
 Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
 [https://www.youtube.com/watch?v=Q9tIeRQtkBw](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Akar Rasol, Jaroslav Grunwald - o životě v těle, jak žít, jak si tvořit vlastní realitu, příjmání
