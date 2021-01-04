@@ -17,7 +17,7 @@ _15:30_
 
 _16:30_
 
-_Cena **450,-** výkladu zahrnuje nejen výklad karet ale rovněž doporučení jak s danou situací pracovat dále a také osobní vůně pro tento proces._
+_Cena **450,-** výkladu zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
 
 _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
 
