@@ -5,6 +5,21 @@ permalink: clanky.html
 order: "50"
 
 ---
+_Jednou týdně v mém prostoru studia pracuji nejen s tarotovými kartami, lze se po hodině hlásit na tyto termíny:_
+
+_Pokud není domluveno jinak, každé úterý :_
+
+_13:30_
+
+_14:30_
+
+_15:30_
+
+_16:30_
+
+_Cena **450,-** výkladu zahrnuje nejen výklad karet ale rovněž doporučení jak s danou situací pracovat dále a také osobní vůně pro tento proces._
+
+_Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
 
 Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
