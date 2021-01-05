@@ -48,15 +48,7 @@ _Rituály vykuřování na míru._
 
 _Čištění je velmi individuální proces při kterém každém jednotlivě upřednostňuji jiné techniky._
 
-_Osob, domů, obydlí, prostor._
-
 _Pracuji rovněž se zvířaty, které se bojí, jsou nemocné, agresivní, nespolupracují._
-
-_Nemohu odvolat smrt, pro ty pro které si přišla v jejich čas._
-
-_Nemohu zaručit příchod chtěného dítěte, pokud se v rodině nezačne pracovat do hloubky, rovněž nejsem lékař a nemohu diagnostikovat ,ani určit přesnou příčinu._
-
-_Nemohu odehnat duše z domu, pokud je tam držíte žalem ze ztráty Vy sami._
 
 _Vše je velmi křehké a individuální._
 
