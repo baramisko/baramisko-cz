@@ -34,10 +34,6 @@ _tyto dva procesy spolu úzce souvisí_
 
 _Čištění , osoba 500,-800,- podle náročnosti a délky, max. dvě hodiny. Cenu nenavyšuji._
 
-_Dům , obydlí, prostory, dle náročnosti dojezdu, příčiny a procesu 2000,-, každá další půl hodina nad dvě hodiny času 500,-._
-
-_V potaz beru jak cestu tam i zpět, vlastní energii a energii vynaloženou na proces._
-
 _Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥_
 
 _Práce se zvířetem dle domluvy cena._
