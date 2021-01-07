@@ -110,3 +110,43 @@ Udělejte společně chléb, koláč, naučte se zpátky vnímat roční období
 Jestli nevíte rady, je na internetu spousta knih a četby a nápadů. myslíte si, že v tomhle světe po roce 2020 je důležitější někam spěchat? Nebo naopak zpomalit a roztřídit si priority?
 
 Blíže se dušičky, blíže se Vánoce. O čem tyto svátky jsou doopravdy?
+
+## **7.1.2021**
+
+Odpoutanost
+
+Velké téma, nejen roku 2021 i roku minulého a minulých let.
+
+Odpoutat se nejen od dění kolem nás, ale také od závislostí, lidí, zajetých režimů a systému, kterém nám pomalu padají.
+
+Odpoutat se od tzv ega, mysli, která nás neustále atakuje, odpoutat se od tzv.,,zla,, které nikdy nespí a každým dnes nás zkouší. Skrze pády, ostatní lidi a situací o kterých si říkáme: ,, už ne prosím, tohle jsem si prošel, už ne, proč jsem zase tady v téhle díře?,,
+
+Každý známe situaci, ve které nevidíme světlo na konci tunelu a je pravdou, že tenhle tunel je s prominutím sakra dlouhý. A že ještě bude chvíli trvat, než jej projdeme alespoň do osvětlení je názor nejen mistrů ale i nás zdánlivě obyčejných lidí.
+
+V minulém roce se odehrálo něco, co s oblibou nazývám, dno bahna, a myslím, že málokdo v mém okolí měl bezva rok a to i ti lidé, kteří cestují, nežijí v ČR či Evropě a to i ti, co čekají rodinu a jsou zabezpečení. Ty ataky a jemné potíže dostaly všechny. Nelze se vyhnout něčemu tak velkému.
+
+Je náročné se ODPOUTAT nebo také ROZPOZNAT v daný moment, co je pro nás dobré. Mnohdy jsme již, tak zmatení všemi informacemi, tlakem, názory, že i vlastní intuice nás posílá k zemi.
+
+Rozpoznání nebo -li Vidžňánamajakóša je pro naši cestu nesmírně až vesmírně důležitá. Zahrnuje nejen naší osobnost tudíž i ego a chtíč se prosadit, ale druhou a třetí rovinu božství a vyšší inteligence, která na nás celý život dohlíží, ať už jsme vědomí mnoho nebo méně.
+
+Už cítíme, že nejde pokračovat v ničem starém.
+
+Neexistuje správná volba, jen volba s následky, neexistuje jen dobro a zlo, nic není černobílé. Je to jen na nás.
+
+Jak se tedy odpoutat a směřovat pozornost na sebe a své přání a svůj život, aniž bych se musel neustále přetvařovat, dělat co nechci a nebýt tlačen kam nechci.
+
+Jde o pocit.
+
+Prvotní pocit, který při tom všem co prožíváme cítíme, nenechte se oklamat a vkládat do pocitu MYSL, odpoutejte se od ní. jen vnímejte, jak na to reaguje tělo. Nic víc. Poodstup.
+
+Vše si děláme sami, i to hnusné, i ty kamarády, práci, přístup.
+
+Jde o to dosáhnout toho, abychom svou NEODPOUTANOST a strach převedli.
+
+Ano je to velké mistrovské dílo a umění.
+
+Jen si zkuste říci, to se mne netýká, chvíli na to nebudu reagovat a s klidnou hlavou bez emocí vyřeším později. V momentě, když na vás někdo maximálně útočí a tlačí. Zkuste to a uvidíte, jaké se panečku budou dít divy.
+
+Odpoutanost od svých starých vzorců a znovu nalezení toho, jaké to je jen tak viset hlavou dolů. Ale pozor! Neviste tam dlouho, naleje se krev do mozku a nebude to myslet a myslet je vědomá práce, né flákačka.
+
+Namasté
