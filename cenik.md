@@ -1,27 +1,27 @@
 ---
 layout: page
-title: Výklad tarotu
+title: Výklad karet, vzkazy, channeling
 permalink: clanky.html
 order: "50"
 
 ---
 ![](/uploads/angeltarot2_2nd-1.jpg)
 
-_Jednou týdně v mém prostoru studia pracuji nejen s tarotovými (lze si vybrat osobně) kartami. Možnost se po hodině hlásit na tyto termíny:_
-
-_Pokud není domluveno jinak, každé úterý :_
-
-_13:30_
-
-_14:30_
-
-_15:30_
-
-_16:30_
+_Jednou týdně v mém prostoru studia pracuji nejen s tarotovými (lze si vybrat osobně) kartami._ 
 
 _Cena **450,-** výkladu zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
 
 _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
+
+_Automatické vzkazy, čili automatické psaní, pracuji ráda osobně, více o tom , co to je automatické psaní a vzkazy se dozvíte osobně nebo mailem předem. Existuje spousta šarlatánu, kteří tahají z lidí peníze, není to mým záměrem a proto nepracuji prozatím na dálku. Potřebuji být ve Vaší energii._
+
+_Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací_
+
+_Cena za hodinu **500,- - 700,-/ dle rozsahu náročnosti**_
+
+_Channeling, pouze osobně po domluvě, 1,5 hodiny **550,-**_ **-_800,-/dle rozsahu náročnosti_**
+
+**Pro více informací a jak pracuji si napište. Internet je smyčka dezinformací a já nechci podporovat kohokoli , kdo znevažuje jemnohmotné práce s energiemi.**
 
 Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
