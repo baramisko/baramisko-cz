@@ -7,7 +7,7 @@ order: "50"
 ---
 ![](/uploads/angeltarot2_2nd-1.jpg)
 
-_Cena **450,-** výkladu zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
+_Cena **450,-**  výkladu zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
 
 _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
 
