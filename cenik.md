@@ -25,6 +25,8 @@ _Nacházíte -li se v nějaké životní situaci, kterou nevíte jak vyřešit, 
 
 _Cena za tuto práci osobně je jako cena za terapii 550,-/hodina, po korespondenci záleží na množství dotázaných snů a času jejich zpracování 1 sen 300,- 2-3 sny 400,- , 4-5 snů 550,-._
 
+**_Sny musí být rozepsány s veškerými detaily, nelze např. rozkličovat, že se Vám zádlo o mouše a nic víc k tomu :)_**
+
 **Pro více informací a jak pracuji si napište. Internet je smyčka dezinformací a já nechci podporovat kohokoli , kdo znevažuje jemnohmotné práce s energiemi.**
 
 Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
