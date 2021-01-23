@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Výklad karet, vzkazy, channeling
+title: Výklad karet, vzkazy, channeling, práce se sny
 permalink: clanky.html
 order: "50"
 
@@ -18,6 +18,12 @@ _Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdr
 _Cena za hodinu **500,- - 700,-/ dle rozsahu náročnosti**_
 
 _Channeling, pouze osobně po domluvě, 1,5 hodiny **550,-**_ **-_800,-/dle rozsahu náročnosti_**
+
+_Práce se sny, je velice specifická práce, kdy potřebuji ,abyste před schůzkou než se sejdeme zapisovali své sny alespoň týden, vše co si pamatujete._
+
+_Nacházíte -li se v nějaké životní situaci, kterou nevíte jak vyřešit, je možné ,že vaše podvědomí a vyšší já Vám cestu sděluje skrze snění. Nemusíte jim rozumět, jsou tam různá vodítka, znaky, výjevy aj. které mohou být často nesrozumitelné. Společně je však můžeme rozkličovat a najít cestu ven. Nemusíme se scházet osobně, pokud na to není časový prostor, stačí mi zaslat sny napsané mailem, či vyfocené na papíře, čitelně. **Avšak opravdu raději jsem za osobní setkání**. Po zaslání volám se zpětnou vazbou nebo napíši mail._
+
+_Cena za tuto práci osobně je jako cena za terapii 550,-/hodina, po korespondenci záleží na množství dotázaných snů a času jejich zpracování 3 sny 400,- , 5 snů 550,-._
 
 **Pro více informací a jak pracuji si napište. Internet je smyčka dezinformací a já nechci podporovat kohokoli , kdo znevažuje jemnohmotné práce s energiemi.**
 
