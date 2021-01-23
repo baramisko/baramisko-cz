@@ -7,15 +7,13 @@ order: "50"
 ---
 ![](/uploads/angeltarot2_2nd-1.jpg)
 
-_Jednou týdně v mém prostoru studia pracuji nejen s tarotovými (lze si vybrat osobně) kartami._ 
-
 _Cena **450,-** výkladu zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
 
 _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
 
 _Automatické vzkazy, čili automatické psaní, pracuji ráda osobně, více o tom , co to je automatické psaní a vzkazy se dozvíte osobně nebo mailem předem. Existuje spousta šarlatánu, kteří tahají z lidí peníze, není to mým záměrem a proto nepracuji prozatím na dálku. Potřebuji být ve Vaší energii._
 
-_Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací_
+_Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací, jestliže se nic nezjeví, neplatíte._
 
 _Cena za hodinu **500,- - 700,-/ dle rozsahu náročnosti**_
 
