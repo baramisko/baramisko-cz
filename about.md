@@ -19,7 +19,7 @@ _Oddala svůj život Bohu a proto byla navždy pannou, stejně jako já jsem ve 
 
 _Sv. Barbora se volá při katastrofách, požárech, mučení, epidemií a proto je uctívána jako ochránkyně proti smrti bleskem,_ [_požáry_](https://cs.wikipedia.org/wiki/Po%C5%BE%C3%A1r "Požár") _a vůbec před rizikem náhlé či násilné smrti, je proto patronka havířů, dělostřelců, pyrotechniků, architektů, matematiků a dalších rizikových povolání, a rovněž dětí._
 
-_Jméno Nyja mi přišlo v meditaci. Také jsem slyšela Nilla,Nilló, což znamená např. v Nepálštině modrá._
+_Jméno Nyja, Nia mi přišlo v meditaci. Také jsem slyšela Nilla,Nilló, což znamená např. v Nepálštině modrá._
 
 _Také s ním souzním._
 
