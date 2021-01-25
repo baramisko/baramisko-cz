@@ -22,6 +22,10 @@ _Výklad karet - 45´-75´ 450,- až 650,-_
 
 _Automatické psaní, či sdělení 500,- až 800,- dle náročnosti a rozsahu_
 
+_Channeling 500,- až 800,- dle náročnosti a rozsahu_
+
+_Práce se sny, mailem či osobní rozbor - mailem 1-2 sny 350,-, 3-4 sny 500,- 5 a více snů dle domluvy, osobně hodina/dvě hodiny 600,- až 900,-_
+
 _Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥_
 
 _Práce se zvířetem dle domluvy cena._
