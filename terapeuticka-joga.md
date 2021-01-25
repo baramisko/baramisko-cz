@@ -18,6 +18,10 @@ _tyto dva procesy spolu úzce souvisí_
 
 _Čištění , osoba 600,-800,- podle náročnosti a délky, max. dvě hodiny. Cenu nenavyšuji._
 
+_Výklad karet - 45´-75´ 450,- až 650,-_
+
+_Automatické psaní, či sdělení 500,- až 800,- dle náročnosti a rozsahu_
+
 _Na všem se lze domluvit dle možností rodiny, studentů, finanční situace apod. Jsme lidé ♥♥♥_
 
 _Práce se zvířetem dle domluvy cena._
