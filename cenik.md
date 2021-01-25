@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Výklad karet, vzkazy, channeling, práce se sny
+title: Práce napojením, práce se sny
 permalink: clanky.html
 order: "50"
 
