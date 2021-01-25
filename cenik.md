@@ -7,7 +7,7 @@ order: "50"
 ---
 ![](/uploads/angeltarot2_2nd-1.jpg)
 
-_Cena **450,-**  výkladu zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
+ _Výklad zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
 
 _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
 
@@ -15,21 +15,17 @@ _Automatické vzkazy, čili automatické psaní, pracuji ráda osobně, více o 
 
 _Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací, jestliže se nic nezjeví, neplatíte._
 
-_Cena za hodinu **500,- - 700,-/ dle rozsahu náročnosti**_
-
-_Channeling, pouze osobně po domluvě, 1,5 hodiny **550,-**_ **-_800,-/dle rozsahu náročnosti_**
+_Channeling, pouze osobně po domluvě, 1,5 hodiny_ 
 
 _Práce se sny, je velice specifická práce, kdy potřebuji ,abyste před schůzkou než se sejdeme zapisovali své sny alespoň týden, vše co si pamatujete._
 
 _Nacházíte -li se v nějaké životní situaci, kterou nevíte jak vyřešit, je možné ,že vaše podvědomí a vyšší já Vám cestu sděluje skrze snění. Nemusíte jim rozumět, jsou tam různá vodítka, znaky, výjevy aj. které mohou být často nesrozumitelné. Společně je však můžeme rozkličovat a najít cestu ven. Nemusíme se scházet osobně, pokud na to není časový prostor, stačí mi zaslat sny napsané mailem, či vyfocené na papíře, čitelně. **Avšak opravdu raději jsem za osobní setkání**. Po zaslání volám se zpětnou vazbou nebo napíši mail._
 
-_Cena za tuto práci osobně je jako cena za terapii 550,-/hodina, po korespondenci záleží na množství dotázaných snů a času jejich zpracování 1 sen 300,- 2-3 sny 400,- , 4-5 snů 550,-._
-
 **_Sny musí být rozepsány s veškerými detaily, nelze např. rozkličovat, že se Vám zádlo o mouše a nic víc k tomu :)_**
 
-**Pro více informací a jak pracuji si napište. Internet je smyčka dezinformací a já nechci podporovat kohokoli , kdo znevažuje jemnohmotné práce s energiemi.**
+**_Pro více informací a jak pracuji si napište. Internet je smyčka dezinformací a já nechci podporovat kohokoli , kdo znevažuje jemnohmotné práce s energiemi._**
 
-Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
+* Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
 [https://www.youtube.com/watch?v=Q9tIeRQtkBw](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Akar Rasol, Jaroslav Grunwald - o životě v těle, jak žít, jak si tvořit vlastní realitu, příjmání
 
