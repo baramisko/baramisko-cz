@@ -4,7 +4,7 @@ title: Ceník
 permalink: terapie-lecba.html
 
 ---
-**O konkrétním detailu dané služby se dočtete v sekci terapie a v sekci práce napojením**
+**O konkrétním detailu dané služby se dočtete v sekci terapie a v sekci práce napojením, práce se sny**
 
 _Nabízené služby si cením takto:_
 
