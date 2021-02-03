@@ -7,7 +7,7 @@ order: "50"
 ---
 ![](/uploads/angeltarot2_2nd-1.jpg)
 
- _Výklad zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
+_Výklad zahrnuje nejen výklad karet ale předání informací, které budou úzce souviset s vaší duší._
 
 _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluvit i přes whats up._
 
@@ -15,7 +15,7 @@ _Automatické vzkazy, čili automatické psaní, pracuji ráda osobně, více o 
 
 _Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací, jestliže se nic nezjeví, neplatíte._
 
-_Channeling, pouze osobně po domluvě, 1,5 hodiny_ 
+_Channeling,nebo také napojení se skrze Vás na Vaše vyšší já, tam kam sami nedohlédnete, pouze osobně po domluvě, 1,5 hodiny_
 
 _Práce se sny, je velice specifická práce, kdy potřebuji ,abyste před schůzkou než se sejdeme zapisovali své sny alespoň týden, vše co si pamatujete._
 
