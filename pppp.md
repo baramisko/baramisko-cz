@@ -8,20 +8,6 @@ order: "20"
 
 _Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k podstatě a ke kořenům._
 
-**_Masáže_**
-
-_Pracuji s měkkými technikami, ajurvédskými technikami, reflexními prvky a aromaterapií. Masáž je celková , otevře bolest ale společně bolest odstraníme ,nebo popracujeme na jejím dlouhodobém odstranění._
-
-_Masáž hlavy, obličeje, šíje, ramen._
-
-_Celková masáž._
-
-_Reflexní masáž chodidel._
-
-_Používám rostlinné oleje a aromaterapii na míru v ten den masáže vhodnou přímo pro vás._
-
-_U masáže sdílím, jen po domluvě, doporučení např. bylin či cviků pro pomoc vyřešení potíží, jinak nemluvíme._
-
 **_Terapie_**
 
 _Slovem osobně._
@@ -53,3 +39,17 @@ _Pracuji rovněž se zvířaty, které se bojí, jsou nemocné, agresivní, nesp
 _Vše je velmi křehké a individuální._
 
 _Na podrobnosti se prosím ptejte._
+
+**_Masáže_**
+
+_Pracuji s měkkými technikami, ajurvédskými technikami, reflexními prvky a aromaterapií. Masáž je celková , otevře bolest ale společně bolest odstraníme ,nebo popracujeme na jejím dlouhodobém odstranění._
+
+_Masáž hlavy, obličeje, šíje, ramen._
+
+_Celková masáž._
+
+_Reflexní masáž chodidel._
+
+_Používám rostlinné oleje a aromaterapii na míru v ten den masáže vhodnou přímo pro vás._
+
+_U masáže sdílím, jen po domluvě, doporučení např. bylin či cviků pro pomoc vyřešení potíží, jinak nemluvíme._
