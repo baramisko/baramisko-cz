@@ -14,8 +14,6 @@ _Terapie se týká témat blízkých krizí, spirituální krize, poruchy příj
 
 **_Léčba_**
 
-_Dotykem. Většinou se dotkněte nohou či hlavy, dlaní._
-
 _Energií. Prostředí sebe a vás a napojení se na naše „vyšší vědomí“ může odstranit bolesti jak z fyzické, tak psychické roviny, různě zděděné vzorce, pomoc s procesem znovuzrození se do větší duchovní pohody._
 
 _Napojením se._
@@ -37,12 +35,6 @@ _Na podrobnosti se prosím ptejte._
 **_Masáže_**
 
 _Pracuji s měkkými technikami, ajurvédskými technikami, reflexními prvky a aromaterapií. Masáž je celková , otevře bolest ale společně bolest odstraníme ,nebo popracujeme na jejím dlouhodobém odstranění._
-
-_Masáž hlavy, obličeje, šíje, ramen._
-
-_Celková masáž._
-
-_Reflexní masáž chodidel._
 
 _Používám rostlinné oleje a aromaterapii na míru v ten den masáže vhodnou přímo pro vás._
 
