@@ -12,17 +12,17 @@ _Masáž dle výběru(část těla, nebo celková) 60´ 750,- , 90´ 950,-_
 
 _Terapie 50´-70´ 500,- až 700,-_
 
-_Léčba , základní hodina 600,-800,- podle náročnosti a délky procesu, max. dvě hodiny._
+_Léčba , základní hodina -800,- podle náročnosti a délky procesu, max. dvě hodiny 1500,-._
 
 _tyto dva procesy spolu úzce souvisí_
 
-_Čištění , osoba 600,-800,- podle náročnosti a délky, max. dvě hodiny. Cenu nenavyšuji._
+_Čištění , osoba 800-1200,- podle náročnosti a délky, max. dvě hodiny._
 
 _Výklad karet - 45´-75´ 450,- až 650,-_
 
 _Automatické psaní, či sdělení 500,- až 800,- dle náročnosti a rozsahu_
 
-_Channeling 500,- až 800,- dle náročnosti a rozsahu_
+_Channeling  800,- 1200,- dle náročnosti a rozsahu. Základní hodina, hodina a půl až dvě._
 
 _Práce se sny, mailem či osobní rozbor - mailem 1-2 sny 350,-, 3-4 sny 500,- 5 a více snů dle domluvy, osobně hodina/dvě hodiny 600,- až 900,-_
 
