@@ -4,7 +4,7 @@ title: Terapie
 order: "20"
 
 ---
-![](/uploads/the-art-of-smudging.jpg)
+**_Pracuji rovněž se zvířaty, které cítím někdy lépe než lidi._**
 
 _Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k zásadám a ke kořenům._
 
