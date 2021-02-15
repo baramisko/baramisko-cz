@@ -13,9 +13,9 @@ _Vykládám velmi ráda hlavně osobně, pokud jste z daleka, můžeme se domluv
 
 **_Automatické vzkazy, čili automatické psaní_**_, pracuji ráda osobně, více o tom , co to je automatické psaní a vzkazy se dozvíte osobně nebo mailem předem. Existuje spousta šarlatánu, kteří tahají z lidí peníze, není to mým záměrem a proto nepracuji prozatím na dálku. Potřebuji být ve Vaší energii._
 
-_Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací, jestliže se nic nezjeví, neplatíte._
+_Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací._
 
-**_Napojení se skrze Vás na Vaše vyšší já_**_, tam kam sami nedohlédnete, pouze osobně po domluvě, 1,5 hodiny_
+**_Napojení se skrze Vás na Vaše vyšší já_** _(kdo chce říká tomu channeling), tam kam sami nedohlédnete, pouze osobně po domluvě, 1,5 hodiny_ 
 
 **_Práce se sny_**_, je velice specifická práce, kdy potřebuji ,abyste před schůzkou než se sejdeme zapisovali své sny alespoň týden, vše co si pamatujete._
 
