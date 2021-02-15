@@ -26,7 +26,7 @@ _Rituály vykuřování na míru._
 
 _Čištění je velmi individuální proces při kterém každém jednotlivě upřednostňuji jiné techniky._
 
-_Pracuji rovněž se zvířaty, které se bojí, jsou nemocné, agresivní, nespolupracují._
+**_Pracuji rovněž se zvířaty, které se bojí, jsou nemocné, agresivní, nespolupracují._**
 
 _Vše je velmi křehké a individuální._
 
