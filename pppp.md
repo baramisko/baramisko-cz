@@ -6,23 +6,17 @@ order: "20"
 ---
 ![](/uploads/the-art-of-smudging.jpg)
 
-_Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k podstatě a ke kořenům._
+_Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíciletí a nezanikly a to co funguje a nezaniklo nás vrací k zásadám a ke kořenům._
 
 **_Terapie_**
 
-_Slovem osobně._
-
-_Slovem přes skype nebo whats up._
-
-_Mailová korespondence._
-
-_Terapie se týká témat blízkých krize, spirituální krize, poruch příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost, neurózy, rodové linie..._
+_Terapie se týká témat blízkých krizí, spirituální krize, poruchy příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost, neurózy, rodové linie ..._
 
 **_Léčba_**
 
-_Dotykem. Většinou se dotknu nohou či hlavy, dlaní._
+_Dotykem. Většinou se dotkněte nohou či hlavy, dlaní._
 
-_Energií. Prostřednictvím sebe a Vás a napojením se na naše ,,vyšší vědomí,, můžeme odstranit bolesti jak z fyzické, či psychické roviny, různě zděděné vzorce, pomoci s procesem znovuzrození se do větší duchovní pohody._
+_Energií. Prostředí sebe a vás a napojení se na naše „vyšší vědomí“ může odstranit bolesti jak z fyzické, tak psychické roviny, různě zděděné vzorce, pomoc s procesem znovuzrození se do větší duchovní pohody._
 
 _Napojením se._
 
