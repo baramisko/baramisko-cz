@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Práce napojením, práce se sny
+title: Práce napojením, práce se sny,zvířaty
 permalink: clanky.html
 order: "50"
 
