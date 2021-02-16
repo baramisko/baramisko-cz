@@ -48,4 +48,6 @@ _Používám rostlinné oleje a aromaterapii na míru v ten den masáže vhodnou
 
 _U masáže sdílím, po domluvě, doporučení např. bylin či cviků pro pomoc vyřešení potíží. Při masáži nemluvíme._
 
+![](/uploads/web1.jpg)
+
 ![](/uploads/img_20200420_114004.jpg)
