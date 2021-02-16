@@ -64,6 +64,8 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Práce s dětmi z pěstounské péče_
 * _Ajurvédská masáž_
 * _Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti_
+* _Jóga lektor - Hatha, Asthanga, Terapeutická...._
+* _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
 
 ![](/uploads/36770244_10216325668042926_8448948205994901504_o_10216325667962924.jpg)
 
