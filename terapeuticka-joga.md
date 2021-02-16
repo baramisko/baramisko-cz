@@ -4,13 +4,18 @@ title: Ceník
 permalink: terapie-lecba.html
 
 ---
-**O konkrétním detailu dané služby se dočtete v sekci terapie a v sekci práce napojením, práce se sny**
 
 _Nabízené služby si cením takto:_
 
-_Masáž dle výběru(část těla, nebo celková) 60´ 750,- , 90´ 950,-_
+_Masáž dle domluvy konkrétní části nebo celková_
 
-_Terapie 50´-70´ 500,- až 700,-_
+ _60´ 750,-_ 
+
+ _90´ 950,-_
+
+_Terapie_ 
+
+_50´-70´ 600,- až 750,-_
 
 _Léčba , základní hodina -800,- podle náročnosti a délky procesu, max. dvě hodiny 1500,-._
 
@@ -18,7 +23,7 @@ _tyto dva procesy spolu úzce souvisí_
 
 _Čištění , osoba 800-1200,- podle náročnosti a délky, max. dvě hodiny._
 
-_Výklad karet - 45´-75´ 450,- až 650,-_
+_Výklad karet - 45´-75´ 450,- až 650,- možno zapojit do terapie a dohodnout se na ceně_
 
 _Automatické psaní, či sdělení 500,- až 800,- dle náročnosti a rozsahu_
 
