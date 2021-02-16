@@ -40,10 +40,12 @@ _Na podrobnosti se prosím ptejte._
 
 **_Masáže_**
 
-_Pracuji s měkkými technikami, ajurvédskými technikami, reflexními prvky a aromaterapií._ 
+_Pracuji s měkkými technikami, ajurvédskými technikami, reflexními prvky a aromaterapií._
 
 _Masáž je celková , otevře bolest ale společně bolest odstraníme ,nebo popracujeme na jejím dlouhodobém odstranění._
 
 _Používám rostlinné oleje a aromaterapii na míru v ten den masáže vhodnou přímo pro vás._
 
 _U masáže sdílím, po domluvě, doporučení např. bylin či cviků pro pomoc vyřešení potíží. Při masáži nemluvíme._
+
+![](/uploads/img_20200420_114004.jpg)
