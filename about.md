@@ -73,8 +73,6 @@ _Z kurzů a výcviků jsem absolvovala:_
 
 ![](/uploads/wertzjk.jpg)
 
-![](/uploads/web-1.jpg)
-
 ![](/uploads/img_20210111_161326.jpg)
 
 ![](/uploads/36770244_10216325668042926_8448948205994901504_o_10216325667962924.jpg)
