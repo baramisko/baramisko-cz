@@ -71,6 +71,8 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Jóga lektor - Hatha, Asthanga, Terapeutická...._
 * _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
 
+![](/uploads/wertzjk.jpg)
+
 ![](/uploads/web-1.jpg)
 
 ![](/uploads/img_20210111_161326.jpg)
