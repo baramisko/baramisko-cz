@@ -36,9 +36,3 @@ _Na všem se lze domluvit dle možností rodiny, studentů, finanční situace a
 _Práce se zvířetem dle domluvy cena._
 
 _Peníze beru jako směnný obchod, kdybych žila v jiné době, dali byste mi třeba domácí vejce či maso :) proto pokud Vám přijde cena vysoká nebo naopak nízká, tak se můžeme domluvit ,dle toho ,co očekáváte a co očekávám já._
-
-_Jógové lekce, nabídka kurzů a přihlášení, recenze :_
-
-[_www.joga-frenstat.cz_](https://www.joga-frenstat.cz "www.joga-frenstat.cz")
-
-_Nejsem plátce DPH a nespolupracuji s pojišťovnami._
