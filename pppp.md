@@ -46,4 +46,4 @@ _Masáž je celková , otevře bolest ale společně bolest odstraníme ,nebo po
 
 _Používám rostlinné oleje a aromaterapii na míru v ten den masáže vhodnou přímo pro vás._
 
-_U masáže sdílím, jen po domluvě, doporučení např. bylin či cviků pro pomoc vyřešení potíží, jinak nemluvíme._
+_U masáže sdílím, po domluvě, doporučení např. bylin či cviků pro pomoc vyřešení potíží. Při masáži nemluvíme._
