@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Terapie
+title: Terapie těla i duše
 order: "20"
 
 ---
