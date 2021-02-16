@@ -26,6 +26,8 @@ _Prostřednictvím předků, zemřelých, duše....Někdy se stane ,že během l
 
 **_Čištění_**
 
+_Aromaterapie_
+
 _Rituály vykuřování na míru._
 
 _Čištění je velmi individuální proces při kterém každém jednotlivě upřednostňuji jiné techniky._
