@@ -7,6 +7,8 @@ order: "100"
 ---
 _Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce, ostatní slova jsou zbytečná..._
 
+_Miluji klid a ticho, zimu, arktickou zimu, zvířata, jsem silně napojená na přírodu a cítím i její bolesti, vlastní mne tři kočky, souzním s jednou duší manžela, jsem nevlastní maminka dvou krásných žen, ačkoli se to nezdá je mi letos 33 let...:) ( rok 2021)_
+
 _Jméno, které mi dali rodiče je Barbora._
 
 _Souzním s ním v mnoha ohledech_
