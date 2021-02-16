@@ -4,6 +4,7 @@ title: Terapie těla i duše
 order: "20"
 
 ---
+![](/uploads/shamanic.jpg)
 
 **_Vhodné rovněž pro lidi trpící nespavostí, zakřiknutím, těm , co se cítí ,,zakletí,,_**
 
