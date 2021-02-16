@@ -5,6 +5,7 @@ permalink: clanky.html
 order: "50"
 
 ---
+
 **_Automatické vzkazy, čili automatické psaní_**_, pracuji ráda osobně, více o tom , co to je automatické psaní a vzkazy se dozvíte osobně nebo mailem předem. Existuje spousta šarlatánu, kteří tahají z lidí peníze, není to mým záměrem a proto nepracuji prozatím na dálku. Potřebuji být ve Vaší energii._
 
 _Nebudu si brát pouze papír a tužku, projdeme společně napojením se na zdroj informací a na duši společným úvodem, uvolněním a meditací._
@@ -18,3 +19,5 @@ _Nacházíte -li se v nějaké životní situaci, kterou nevíte jak vyřešit, 
 **_Sny musí být rozepsány s veškerými detaily, nelze např. rozkličovat, že se Vám zádlo o mouše a nic víc k tomu :)_**
 
 **_Pro více informací a jak pracuji si napište. Internet je smyčka dezinformací a já nechci podporovat kohokoli , kdo znevažuje jemnohmotné práce s energiemi._**
+
+![](/uploads/7-chakrasllll.jpg)
