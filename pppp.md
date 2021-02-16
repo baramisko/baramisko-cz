@@ -20,7 +20,7 @@ _Terapie se týká témat blízkých krizí, spirituální krize, poruchy příj
 
 _Energií. Prostředí sebe a vás a napojení se na naše „vyšší vědomí“ může odstranit bolesti jak z fyzické, tak psychické roviny, různě zděděné vzorce, pomoc s procesem znovuzrození se do větší duchovní pohody._
 
-_Napojením se._
+_Napojením se. Channeling_
 
 _Prostřednictvím předků, zemřelých, duše....Někdy se stane ,že během léčby či čištění jsou povoláni ať už sami od sebe nebo vámi vaši předci, ti kteří vám chtějí něco sdělit a pomoci vám._
 
