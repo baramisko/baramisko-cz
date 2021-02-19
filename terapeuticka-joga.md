@@ -4,16 +4,15 @@ title: Ceník
 permalink: terapie-lecba.html
 
 ---
-
 _Nabízené služby si cením takto:_
 
 _Masáž dle domluvy konkrétní části nebo celková_
 
- _60´ 750,-_ 
+_60´ 750,-_
 
- _90´ 950,-_
+_90´ 950,-_
 
-_Terapie_ 
+_Terapie_
 
 _50´-70´ 600,- až 750,-_
 
