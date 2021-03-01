@@ -10,7 +10,7 @@ _Masáž dle domluvy konkrétní části nebo celková_
 
 _60´ 750,-_
 
-_90´ 950,-_
+_90´ 850,-_
 
 _Terapie_
 
