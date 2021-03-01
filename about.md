@@ -9,7 +9,7 @@ _Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce, ostatní slov
 
 _Miluji klid a ticho, zimu, arktickou zimu, zvířata, jsem silně napojená na přírodu a cítím i její bolesti, vlastní mne tři kočky, souzním s jednou duší manžela  je mi letos 33 let...:) ( rok 2021)_
 
-_Mám bulharsko, maďarsko, slovanská předky a díky józe jsou harmonii :)_
+_Mám bulharsko, maďarsko, slovanská předky a díky józe jsou v harmonii :)_
 
 _Jméno, které mi dali rodiče je Barbora._
 
@@ -35,7 +35,7 @@ _Podle Matěje Stryjkowského byl žádán o déšť a o zahnání špatného po
 
 _Jeho ,,pracovištěm,, byla louka se zvířaty a lidmi, které odváděl do světa mrtvých a zbloudilé duše naváděl ke správnému směru. Pracoval s revenanty apod._
 
-_S těmito jevy, příhodami, intuicí vedenými vjemy pracuji od malička. Včetně astrálním poznání cest. O kterém se dočtete ve článku v sekci články._
+_S těmito jevy, příhodami, intuicí vedenými vjemy pracuji od malička. Včetně astrálním poznání cest._ 
 
 _Proč modrá? Je to moje osobní barva, barva, která mne provází nejen na této zemi :)_
 
