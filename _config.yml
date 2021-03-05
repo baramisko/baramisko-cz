@@ -36,3 +36,5 @@ header_pages:
   - kontakt.md
   
 google_analytics: UA-122120466-1
+
+exclude: [vendor]
