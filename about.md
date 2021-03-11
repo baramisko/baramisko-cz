@@ -11,7 +11,7 @@ _Miluji klid a ticho, zimu, arktickou zimu, zvířata, jsem silně napojená na 
 
 _Prošla jsem si různými životními krizemi i etapami, které bych ráda vyměnila za klid, avšak cesty jsou různé a proto mohu s čistým svědomím říci, že jsem si sáhla na své dno. Na své píši záměrně, protože každý máme dno jinak hluboké a temné._
 
-_Mám bulharsko, maďarsko, slovanská předky a díky józe jsou v harmonii :)_
+_Mám bulharsko, maďarsko, slovenské předky a díky józe jsou v harmonii :)_
 
 _Jméno, které mi dali rodiče je Barbora._
 
