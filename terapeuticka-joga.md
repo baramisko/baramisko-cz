@@ -6,11 +6,9 @@ permalink: terapie-lecba.html
 ---
 _Nabízené služby si cením takto:_
 
-_Masáž dle domluvy_ 
+_Masáž dle domluvy_
 
-_60´ 750,-_
-
-_90´ 850,-_
+_90´ 950,-_
 
 _Terapie_
 
