@@ -70,7 +70,7 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Práce s dětmi z pěstounské péče_
 * _Ajurvédská masáž_
 * _Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti_
-* _Jóga lektor - Hatha, Asthanga, Terapeutická...._
+* _Jóga lektor - Hatha, Asthanga, Terapeutická....viz. www.joga-frenstat.cz_
 * _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
 
 ![](/uploads/wertzjk.jpg)
