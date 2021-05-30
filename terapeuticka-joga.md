@@ -10,4 +10,4 @@ _Cena je taková, jaká je, z důvodu toho, abyste si opravdu rozmysleli, zda -l
 
 _Součástí terapií je i další práce na sobě jako cesta a růst osobnosti._
 
-Terapie na míru dle domluvy předešlé - první hodina platí podle ceníku 
+Terapie na míru dle domluvy předešlé, po hodině a půl konzultace, terapie na míru zahrnuje doporučení bylin, jídla, olejů, vůní...
