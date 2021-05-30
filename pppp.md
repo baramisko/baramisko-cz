@@ -16,7 +16,7 @@ _Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíci
 
 _Terapie se týká témat blízkých krizí, spirituální krize, poruchy příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost, neurózy, rodové linie, karmická tíha, neplodnost ..._
 
-**_Léčba předáním_**
+**_Terapie předáním_**
 
 _Energií. Prostředí sebe a vás a napojení se na naše „vyšší vědomí“ může odstranit bolesti jak z fyzické, tak psychické roviny, různě zděděné vzorce, pomoc s procesem znovuzrození se do větší duchovní pohody._
 
