@@ -14,7 +14,7 @@ _Proč jsem si vybrala tuto metodu a tyto techniky? Protože fungují po tisíci
 
 **_Terapie_**
 
-_Terapie se týká témat blízkých krizí, spirituální krize, poruchy příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost, neurózy, rodové linie ..._
+_Terapie se týká témat blízkých krizí, spirituální krize, poruchy příjmu potravy, úzkosti, sebepoškozování, práce se strachem, ataky, paniky, nespavost, neurózy, rodové linie, karmická tíha, neplodnost ..._
 
 **_Léčba předáním_**
 
