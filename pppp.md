@@ -6,7 +6,7 @@ order: "20"
 ---
 ![](/uploads/shamanic.jpg)
 
-**_Vhodné rovněž pro lidi trpící nespavostí, zakřiknutím, těm , co se cítí ,,zakletí,,_**
+**_Témata se týkají - rodových linií, karmických vzorců, postraumatových očist -potrat, zneužití...,poruchy příjmu potravy z pohledu osobní cesty,zakřiknutí, rodové kletby, nespavost, vztahové linie, traumata aj._**
 
 **_Pracuji rovněž se zvířaty, které vnímám v bytostné úrovni_**
 
