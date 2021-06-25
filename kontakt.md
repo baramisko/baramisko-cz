@@ -5,7 +5,7 @@ permalink: kontakt.html
 order: "100"
 
 ---
-Pár milých slov ,spokojených klientů jógy a masáží...
+Pár milých slov ,spokojených klientů jógy a masáží,terapií...
 
 ,,Terapie pomáhá nejen mně, ale i dětem, které k Báře mají obrovskou důvěru, je jemná, citlivá, ale dokáže být velmi tvrdá a přísná tam, kde je třeba. Masáže jsou balzám, dotek je opravdu léčivý, má v sobě nějakou čarovnou esenci která nejde popsat, její vonné oleje jsou naprosto BOŽÍ !!!!,, E.V
 
