@@ -73,11 +73,9 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Jóga lektor - Hatha, Asthanga, Terapeutická....viz. www.joga-frenstat.cz_
 * _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
 
-![](/uploads/wertzjk.jpg)
+![](/uploads/metatr_-krychle.jpg)
 
 ![](/uploads/img_20210111_161326.jpg)
-
-![](/uploads/36770244_10216325668042926_8448948205994901504_o_10216325667962924.jpg)
 
 * Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
 
