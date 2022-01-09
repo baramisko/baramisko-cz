@@ -5,7 +5,9 @@ permalink: clanky.html
 order: "50"
 
 ---
-_Aktuálně_ 
+_Aktuálně_
+
+Datum bude upřesněno v půlce Ledna
 
 ![](/uploads/ascendent-a-jeho-aspekty-page0001.jpg)
 
