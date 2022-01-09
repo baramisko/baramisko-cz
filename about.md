@@ -5,6 +5,8 @@ permalink: bara-nyja.html
 order: "100"
 
 ---
+![](/uploads/img_20210429_151733-1.jpg)
+
 _Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce, ostatní slova jsou zbytečná..._
 
 _Miluji klid a ticho, zimu, arktickou zimu, zvířata, jsem silně napojená na přírodu a cítím více než je viděno očím, vlastní mne tři kočky, souzním s jednou duší manžela..._
@@ -74,20 +76,6 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
 
 ![](/uploads/metatr_-krychle.jpg)
-
-![](/uploads/img_20210111_161326.jpg)
-
-* Inspirace a hovory s lidmi, kteří jsou hodni mluvit o tématu daném :
-
-[https://www.youtube.com/watch?v=Q9tIeRQtkBw](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Akar Rasol, Jaroslav Grunwald - o životě v těle, jak žít, jak si tvořit vlastní realitu, příjmání
-
-[https://www.youtube.com/watch?v=Od2QQ-ivzV4](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Pan Drábek, Paní Vlková, odvádění duší nejen.
-
-[https://www.youtube.com/watch?v=sOJzI2fo6ak](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Pan Ordelt, Paní Vlková, jak slavit dušičky
-
-[https://www.youtube.com/watch?v=HFbfJcwEGjA&list=WL&index=38](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") Pan Dušek, Paní Máslová, o věcech skrytých
-
-[https://www.youtube.com/watch?v=olityIMMvGo&list=LL&index=20](https://www.youtube.com/watch?v=Q9tIeRQtkBw "https://www.youtube.com/watch?v=Q9tIeRQtkBw") O každodenním folklóru a rituálech s Ramonou Siringlem
 
 ### **_Intuice jako nástroj pomocný_**
 
