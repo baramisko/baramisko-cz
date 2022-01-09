@@ -5,9 +5,9 @@ permalink: terapie-lecba.html
 
 ---
 
-_Konzultace, terapie, očista, energetická ochrana....1,5 hodiny 1400,-_
+_Konzultace, terapie, očista, energetická ochrana....1,5 hodiny 1300,-_
 
-_Masáž 1,5 hodiny 1200,-, dvě hodiny 1500,-_
+_Masáž 1,5 hodiny 1300,-, dvě hodiny 1500,-_
 
 _Výklad tarotu, práce s kyvadlem, napojení se na odpovědi... 1,5 hodiny 1500,-_
 
