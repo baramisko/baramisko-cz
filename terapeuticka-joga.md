@@ -4,7 +4,12 @@ title: Ceník
 permalink: terapie-lecba.html
 
 ---
-![](/uploads/cenikkkk.png)
+
+_Konzultace, terapie, očista, energetická ochrana....1,5 hodiny 1400,-_
+
+_Masáž 1,5 hodiny 1200,-, dvě hodiny 1500,-_
+
+_Výklad tarotu, práce s kyvadlem, napojení se na odpovědi... 1,5 hodiny 1500,-_
 
 Studenti mají možnost slevy.
 
