@@ -6,9 +6,7 @@ permalink: terapie-lecba.html
 ---
 ![](/uploads/cenikkkk.png)
 
-_Pro studenty možnost slevy_
-
-_Pro dlouhodobé klienty jógy a masáží sleva 20%_
+Studenti mají možnost slevy.
 
 **_Cena za rituál podle počtu osob, hodin a dojezdu či náročnosti najdete více na www.prorituals.cz_**
 
