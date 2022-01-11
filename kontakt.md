@@ -5,6 +5,13 @@ permalink: kontakt.html
 order: "100"
 
 ---
+### Stačí i sms, opětovně se ozvu zpátky
+
+* emailem na <a href="mailto:Bara.Nyja@seznam.cz"> akyja.nyja@seznam.cz </a>
+* nebo telefonicky na <a href="tel:+420608350759"> 608 350 759 </a>
+* Prosím o sms, lze využít nově i terapie na dálku skrze video platformy, telefonicky terapie nedělám, mobil používám co nejméně, díky záření mi opravdu vadí. Děkuji za pochopení.
+* lze po domluvě terapii prožít v přírodě v lese, u vody, u ohně
+
 Pár milých slov ,spokojených klientů jógy a masáží,terapií...
 
 ,,Terapie pomáhá nejen mně, ale i dětem, které k Báře mají obrovskou důvěru, je jemná, citlivá, ale dokáže být velmi tvrdá a přísná tam, kde je třeba. Masáže jsou balzám, dotek je opravdu léčivý, má v sobě nějakou čarovnou esenci která nejde popsat, její vonné oleje jsou naprosto BOŽÍ !!!!,, E.V
