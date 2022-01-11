@@ -5,7 +5,6 @@ permalink: bara-nyja.html
 order: "100"
 
 ---
-![](/uploads/img_20210429_151733-1.jpg)
 
 _Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce, ostatní slova jsou zbytečná..._
 
@@ -74,6 +73,8 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti_
 * _Jóga lektor - Hatha, Asthanga, Terapeutická....viz. www.joga-frenstat.cz_
 * _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
+
+![](/uploads/img_20210429_151733-1.jpg)
 
 ![](/uploads/metatr_-krychle.jpg)
 
