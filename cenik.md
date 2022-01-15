@@ -5,9 +5,9 @@ permalink: clanky.html
 order: "50"
 
 ---
-_Aktuálně_
+## **_Aktuálně_**
 
-Datum bude upřesněno v půlce Ledna
+#### Datum je určeno na **11.2.2022 od 16 té hodiny ještě 4 volná místa, velmi se těším**
 
 ![](/uploads/ascendent-a-jeho-aspekty-page0001.jpg)
 
