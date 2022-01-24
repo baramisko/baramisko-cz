@@ -12,6 +12,12 @@ permalink: terapie-lecba.html
 * Tlaková 850,-
 * Bez doteková 800,-
 
-Konzultace, terapie, sezení 1200 ,- / hodina a půl
+**Konzultace, terapie, sezení 1200 ,- / hodina a půl**
 
-Lze se objednat i na očistu prostor, odvedení přisedlíků, očistu aury , domova, zvířat, odvedení ,,duchů,, dětí ,atd....
+_Lze se objednat i na očistu prostor, odvedení přisedlíků, očistu aury , domova, zvířat, odvedení ,,duchů,, dětí ,atd...Harmonizace prostorů, domů, bytů aj._
+
+_Po domluvě, dálce a náročnosti_
+
+_Rozmezí podle místností, nebo toho, co budeme dělat_
+
+**1500,- - 3500,-**
