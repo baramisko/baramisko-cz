@@ -13,3 +13,5 @@ permalink: terapie-lecba.html
 * Bez doteková 800,-
 
 Konzultace, terapie, sezení 1200 ,- / hodina a půl
+
+Lze se objednat i na očistu prostor, odvedení přisedlíků, očistu aury , domova, zvířat, odvedení ,,duchů,, dětí ,atd....
