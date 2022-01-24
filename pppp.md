@@ -14,4 +14,6 @@ order: "20"
 * Tlaková, reflexní , energetická masáž, probíhá přes oblečení, tlačením reflexních bodů a meridánů, spouští čištění těla a lymfy, na úrovni duše probíhá hluboký relax 1 - 1,5 hodiny
 * Energetická terapie bez doteků 1 - 1,5 hodiny ( plus stimulace zvukem a harmonizace čaker ) 
 
+Každé sezení je zakončeno ochranou.
+
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
