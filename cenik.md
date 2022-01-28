@@ -7,6 +7,10 @@ order: "50"
 ---
 ## **_Aktuálně_**
 
+Pozor změna!!!! místo ascendentu bude seminář o čakrách, protože je více aktuálnější vzhledem k situaci a změnám transformace
+
+![](/uploads/11043_0.jpg)
+
 #### Datum je určeno na **11.2.2022 od 16 té hodiny ještě 4 volná místa, velmi se těším**
 
 ![](/uploads/ascendent-a-jeho-aspekty-page0001.jpg)
