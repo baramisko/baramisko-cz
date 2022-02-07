@@ -18,7 +18,7 @@ Každé sezení je zakončeno ochranou.
 
 **Ceník :**
 
-* Aromka 900 ,-
+* Aromka 1000 ,-
 * Klasika 850,-
 * Ayurvédská 1100,-
 * Tlaková 850,-
