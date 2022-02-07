@@ -4,6 +4,8 @@ title: Terapie těla i duše
 order: "20"
 
 ---
+![](/uploads/akyja-masaz1-page0001.jpg)
+
 **Z masáží těla** :
 
 * aromaterapeutická masáž celého těla , s vlastní vonnou kompozicí namíchanou v době schůzky , doba trvání cca 1,5 až 2 hodiny. Masáž probíhá pouze ve spodním prádle
@@ -22,7 +24,7 @@ Každé sezení je zakončeno ochranou.
 * Klasika 850,-
 * Ayurvédská 1100,-
 * Tlaková 850,-
-* Bez doteková 800,-
+* Bez doteková 800,-/s harmonizací za pomocí frekvence křišťálovými mísami 1500,-
 
 Výklad karet, na dálku, mailem či v rámci sezení nebo masáže
 
