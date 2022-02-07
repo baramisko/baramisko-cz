@@ -10,7 +10,7 @@ permalink: terapie-lecba.html
 * Klasika 850,-
 * Ayurvédská 1100,-
 * Tlaková 850,-
-* Bez doteková 800,-
+* Bez doteková 800,-/1600,- s harmonizací za pomoci kříšťálových mís
 
 **Konzultace, terapie, sezení 1200 ,- / hodina a půl**
 
