@@ -33,3 +33,5 @@ Tarot, Cikánské karty, orákulum, práce s kyvadlem
 Dle domluvy
 
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
+
+![](/uploads/akyja-zvukova-page0001.jpg)
