@@ -7,7 +7,7 @@ order: "50"
 ---
 Aktuálně :
 
-Harmonizace zvukem : [https://fb.me/e/2rhR6xAl7](https://fb.me/e/2rhR6xAl7 "https://fb.me/e/2rhR6xAl7")
+Harmonizace zvukem : [https://fb.me/e/2rhR6xAl7](https://fb.me/e/2rhR6xAl7 "https://fb.me/e/2rhR6xAl7") poslední dvě volná místa
 
 Pobyt na Antariku v Březnu je vyprodán
 
