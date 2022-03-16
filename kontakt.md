@@ -14,6 +14,8 @@ order: "100"
 
 Pár milých slov ,spokojených klientů jógy a masáží,terapií...
 
+![](/uploads/o-me.jpg)
+
 ,,Terapie pomáhá nejen mně, ale i dětem, které k Báře mají obrovskou důvěru, je jemná, citlivá, ale dokáže být velmi tvrdá a přísná tam, kde je třeba. Masáže jsou balzám, dotek je opravdu léčivý, má v sobě nějakou čarovnou esenci která nejde popsat, její vonné oleje jsou naprosto BOŽÍ !!!!,, E.V
 
 ,,Jóga s Bárou je rozhodne jedna z najzmysluplnějších vecí,ktoré vykonávám pre svoje telo a ducha! Barča vždy vykúzlí dokonalú rovnováhu medzi cvičením a relaxaciou, takže po treningu mám telo unavené a mysel oddýchnutú. Bolesti ktoré ma trápili miznú a telo cítí aj svaly o ktorých ani nevedelo. Okrem toho je Barča úžasná lektorka s obrovyským srdcom čo je poznať na prístupe a doslova ním zlepší deň. Ďakujem! A chalani! S Barčou sa nebude cítit ako srágory, to Vám garantujem!,, Palo Š.
