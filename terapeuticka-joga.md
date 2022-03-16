@@ -14,9 +14,7 @@ permalink: terapie-lecba.html
 
 **Konzultace, terapie, sezení 1300 ,- / hodina a půl**
 
-**Konzultace na dálku, přes zoom či jinou platformu dle domluvy**
-
-**1100,- hodina, hodina a čtvrt**
+**Konzultace na dálku, přes zoom či jinou platformu dle domluvy/1100,- hodina, hodina a čtvrt**
 
 _Lze se objednat i na očistu prostor, odvedení přisedlíků, očistu aury , domova, zvířat, odvedení ,,duchů,, dětí ,atd...Harmonizace prostorů, domů, bytů aj._
 
