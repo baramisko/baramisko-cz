@@ -7,6 +7,10 @@ order: "50"
 ---
 Aktuálně :
 
+Termín bude upřesněn
+
+![](/uploads/page0001.jpg)
+
 Pobyt na Antariku :
 
 Pobyt v Srpnu zde : [https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit?usp=sharing")
