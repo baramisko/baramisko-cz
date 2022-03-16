@@ -4,7 +4,8 @@ title: Terapie těla i duše
 order: "20"
 
 ---
-![](/uploads/akyja-masaz1-page0001.jpg)
+
+![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
 
 **Z masáží těla** :
 
