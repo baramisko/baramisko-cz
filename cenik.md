@@ -7,7 +7,7 @@ order: "50"
 ---
 Aktuálně :
 
-harmonizace zvukem
+harmonizace zvukem proběhne v Jógovně ve Frenštátě pod Radhoštěm, OD Kyčera, naproti obuvi bílé dveře s rozvrhem lekcí jógy
 
 ![](/uploads/srdecne-jste-zvani-na-zvukovou-harmonizaci-kristalovymi-misami-novy-term_1.jpg)
 
