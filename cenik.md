@@ -7,6 +7,10 @@ order: "50"
 ---
 Aktuálně :
 
+harmonizace zvukem
+
+![](/uploads/srdecne-jste-zvani-na-zvukovou-harmonizaci-kristalovymi-misami-novy-term_1.jpg)
+
 Termín bude upřesněn
 
 ![](/uploads/page0001.jpg)
