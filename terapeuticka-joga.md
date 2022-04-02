@@ -7,10 +7,10 @@ permalink: terapie-lecba.html
 **Ceník :**
 
 * Aromka 1000 ,- /80 ´
-* Klasika 850,- / 70 ´
+* Klasika 950,- / 70 ´
 * Ayurvédská 1100,- /90 ´
-* Tlaková 850,-/ 75 ´
-* Bez doteková 800,-/1600,- s harmonizací za pomoci kříšťálových mís / 90 ´
+* Tlaková 950,-/ 75 ´
+* Bez doteková 900,-/1600,- s harmonizací za pomoci kříšťálových mís / 90 ´
 
 **Konzultace, terapie, sezení 1300 ,- / hodina a půl**
 
