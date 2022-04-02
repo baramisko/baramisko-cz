@@ -4,7 +4,6 @@ title: Terapie těla i duše
 order: "20"
 
 ---
-
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
 
 **Z masáží těla** :
@@ -22,10 +21,10 @@ Každé sezení je zakončeno ochranou.
 **Ceník :**
 
 * Aromka 1000 ,-
-* Klasika 850,-
+* Klasika 950,-
 * Ayurvédská 1100,-
-* Tlaková 850,-
-* Bez doteková 800,-/s harmonizací za pomocí frekvence křišťálovými mísami 1500,-
+* Tlaková 950,-
+* Bez doteková 900,-/s harmonizací za pomocí frekvence křišťálovými mísami 1500,-
 
 Výklad karet, na dálku, mailem či v rámci sezení nebo masáže
 
