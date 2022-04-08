@@ -7,6 +7,13 @@ order: "50"
 ---
 Aktuálně :
 
+Milí přátelé, uzavírám dnešní skupinku na mísy a pro příští akci jsem zavedla ,půlku předem , půlku pak, v rámci držení prostoru , ve kterém se platí nájem.   
+Věřím pevně, že někteří z Vás nerozumí tomu, když někam nedorazí , proč by za to měli platit, ale já bych byla ráda, abych mohla zodpovědně tento prostor, který není můj využívat a paní provozní nedržet cenné pátky a penízky, které v případě nekonání se akce nebo menšího počtu lidí může využít kdokoli z nás.  
+  
+Děkuji za pochopení a těším se na celou skupinku!  
+  
+Dnes před pátou :)
+
 harmonizace zvukem proběhne v Jógovně ve Frenštátě pod Radhoštěm, OD Kyčera, naproti obuvi bílé dveře s rozvrhem lekcí jógy
 
 ![](/uploads/srdecne-jste-zvani-na-zvukovou-harmonizaci-kristalovymi-misami-novy-term_1.jpg)
