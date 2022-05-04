@@ -7,9 +7,11 @@ order: "50"
 ---
 Aktuálně :
 
-Pro ty , kteří absolvovali první část s úvodem,mohou přijít o půl hodinky později a cena se upraví, pokud si to však chcete poslechnout znova a doptat se či získat nové informace, budu ráda! Pro ty, kteří jdou na akci podruhé zasílám info do mailu.
+Volná tři místa
 
-![](/uploads/srdecne-jste-zvani-na-zvukovou-harmonizaci-kristalovymi-misami-novy-term_1.jpg)
+![](/uploads/page0001-1.jpg)
+
+Pro ty , kteří absolvovali první část s úvodem,mohou přijít o půl hodinky později a cena se upraví, pokud si to však chcete poslechnout znova a doptat se či získat nové informace, budu ráda! Pro ty, kteří jdou na akci podruhé zasílám info do mailu.
 
 harmonizace zvukem proběhne v Jógovně ve Frenštátě pod Radhoštěm, OD Kyčera, naproti obuvi bílé dveře s rozvrhem lekcí jógy
 
