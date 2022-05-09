@@ -7,7 +7,7 @@ order: "50"
 ---
 Aktuálně :
 
-Volná tři místa
+Akce se přesouvá na jiné datum, pro info stačí kouknout občas zde
 
 ![](/uploads/page0001-1.jpg)
 
