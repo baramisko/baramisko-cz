@@ -4,15 +4,15 @@ title: Ceník
 permalink: terapie-lecba.html
 
 ---
-**Ceník :**
+**Ceník terapií a masáží platný od 10.5.2022 :**
 
-* Aromka 1000 ,- /80 ´
-* Klasika 950,- / 70 ´
-* Ayurvédská 1100,- /90 ´
-* Tlaková 950,-/ 75 ´
-* Bez doteková 900,-/1600,- s harmonizací za pomoci kříšťálových mís / 90 ´
+* Masáž celého těla 60´/ 1100,-, 90 ´/ 1300,-
 
-**Konzultace, terapie, sezení 1300 ,- / hodina a půl**
+  1600,- s harmonizací za pomoci kříšťálových mís 
+
+**Konzultace, terapie, sezení 1500 ,- / hodina a půl**
+
+V ceně máte vždy nápoj, olej na míru a doporučení , co dál :)
 
 **Konzultace na dálku, přes zoom či jinou platformu dle domluvy/1100,- hodina, hodina a čtvrt**
 
@@ -22,4 +22,4 @@ _Po domluvě, dálce a náročnosti_
 
 _Rozmezí podle místností, nebo toho, co budeme dělat_
 
-**1500,- - 3500,-**
+**2000,- - 3500,-**
