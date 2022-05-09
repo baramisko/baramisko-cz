@@ -26,14 +26,6 @@ _Hledám příčiny až do hloubky._
 
 Každé sezení je zakončeno ochranou.
 
-**Ceník :**
-
-* Aromka 1000 ,-
-* Klasika 950,-
-* Ayurvédská 1100,-
-* Tlaková 950,-
-* Bez doteková 900,-/s harmonizací za pomocí frekvence křišťálovými mísami 1500,-
-
 Výklad karet, na dálku, mailem či v rámci sezení nebo masáže
 
 Tarot, Cikánské karty, orákulum, práce s kyvadlem
