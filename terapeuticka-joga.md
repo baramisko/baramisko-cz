@@ -24,4 +24,4 @@ _Po domluvě, dálce a náročnosti_
 
 _Rozmezí podle místností, nebo toho, co budeme dělat_
 
-**2000,- - 3500,-**
+**2500,- - 3500,- a dál**
