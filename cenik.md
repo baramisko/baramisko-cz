@@ -7,6 +7,8 @@ order: "50"
 ---
 Aktuálně :
 
+[https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit")
+
 Akce se přesouvá na jiné datum, pro info stačí kouknout občas zde
 
 ![](/uploads/page0001-1.jpg)
