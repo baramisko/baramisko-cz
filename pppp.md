@@ -4,7 +4,7 @@ title: Terapie těla i duše
 order: "20"
 
 ---
-_Co vše můžeme za pomoci energetické práce vyřešit, je vždy individuální, dochází ke mně lidé , kteří mají problémy s úzkostí, se stavem duševní vyčerpanosti, životní vyčerpanosti, neplodnosti, strachů - všeho co si dokážete představit, spirituální krize, kožní nemoce bez příčiny, psychické obtíže, karmické dluhy, cyklické vztahy aj..._
+_Co vše můžeme za pomoci energetické práce vyřešit, je vždy individuální, dochází ke mně lidé , kteří mají problémy s úzkostí, se stavem duševní vyčerpanosti, životní vyčerpanosti, neplodnosti, strachů - všeho co si dokážete představit, spirituální krize, kožní nemoce bez příčiny, psychické obtíže, karmické dluhy, cyklické vztahy, psychospirituální krize..._
 
 _Nejsem psychiatr ani psycholog, prosím všechny, kteří chtějí odbornou mluvu a terapie pouze slovní , aby navštívili kvalifikované terapeuty na tyto věci._
 
