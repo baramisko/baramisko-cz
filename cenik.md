@@ -5,11 +5,13 @@ permalink: clanky.html
 order: "50"
 
 ---
-Aktuálně :
+_Aktuálně :_
 
-[https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit")
+_Meditační víkendový, prodloužený pobyt_
 
-Akce se přesouvá na jiné datum, pro info stačí kouknout občas zde
+[_https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit_](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit")
+
+_Akce se přesouvá na jiné datum, pro info stačí kouknout občas zde_
 
 ![](/uploads/page0001-1.jpg)
 
