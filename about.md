@@ -5,8 +5,7 @@ permalink: bara-nyja.html
 order: "100"
 
 ---
-
-_Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce, ostatní slova jsou zbytečná..._
+_Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce a duše, ostatní slova jsou zbytečná..._
 
 _Miluji klid a ticho, zimu, arktickou zimu, zvířata, jsem silně napojená na přírodu a cítím více než je viděno očím, vlastní mne tři kočky, souzním s jednou duší manžela..._
 
@@ -46,7 +45,7 @@ _Proč modrá? Je to moje osobní barva, barva, která mne provází nejen na t�
 
 _Dále však své vlastní zkušenosti s léčením, terapií apod. psát nebudu, nejlepší je osobní zkušenost a případná oboustranná spolupráce a pomoc._
 
-_Věnuji se od svých 14 ti let, tarotu, šamanství, rituálům, lucidním snům, práci se sny, práci s vizemi, nepovažuji se za psychiatra ani neléčím léky, snažím se najít cestu duše ke zdraví. Nedostudovala jsem Psychologii v Ostravě na VŠ, protože jsem se osamostatnila a proto je má cesta i jiná, než typická a odešla jsem ve druhém ročníku._
+_Věnuji se od svých 14 ti let, tarotu, šamanství, rituálům, lucidním snům, práci se sny, práci s vizemi, nepovažuji se za psychiatra ani neléčím léky, snažím se najít cestu duše ke zdraví. Nedostudovala jsem Psychologii v Ostravě na VŠ, protože jsem se osamostatnila a proto je má cesta i jiná, než typická a odešla jsem ve druhém ročníku. Tuto cestu jsem mohla alespoň z části předat mládeži , drogově závislým aj,s kterými jsem pracovala jako sociální pracovník přes pět let._
 
 _Z ,,mysteriózních,, cest mám za sebou např. regresivní terapie, holotropní dýchání, sebeterapii v poruchách příjmu potravy aj._
 
