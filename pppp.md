@@ -12,7 +12,7 @@ _Moje práce zasahuje do všech rovin, jak emočních těl, tak fyzických a vš
 
 _Hledám příčiny až do hloubky._
 
-_Všem lidem s kterými jsem se kdy setkala se obrátil životem ,už jen tím,že jsme se našli_ 
+_Všem lidem s kterými jsem se kdy setkala se obrátil život ,už jen tím,že jsme se našli, v dobrém slova smyslu :)_
 
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
 
