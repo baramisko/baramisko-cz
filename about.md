@@ -7,6 +7,8 @@ order: "100"
 ---
 _Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce a duše, ostatní slova jsou zbytečná..._
 
+![](/uploads/img_20220303_180155_420.jpg)
+
 _Miluji klid a ticho, zimu, arktickou zimu, zvířata, jsem silně napojená na přírodu a cítím více než je viděno očím, vlastní mne tři kočky, souzním s jednou duší manžela..._
 
 _Prošla jsem si různými životními krizemi i etapami, které bych ráda vyměnila za klid, avšak cesty jsou různé a proto mohu s čistým svědomím říci, že jsem si sáhla na své dno. Na své píši záměrně, protože každý máme dno jinak hluboké a temné._
