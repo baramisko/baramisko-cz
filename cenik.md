@@ -7,6 +7,8 @@ order: "50"
 ---
 _Aktuálně :_
 
+![](/uploads/srdecne-vas-zvu-na-setkani-pred-prazdninami-page0001.jpg)
+
 _Meditační víkendový, prodloužený pobyt_
 
 [_https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit_](https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit "https://docs.google.com/document/d/1XUiLzmU_3qll1WV-rksKUUjOm612UkABx0YB90NjNp0/edit")
