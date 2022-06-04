@@ -6,13 +6,13 @@ permalink: terapie-lecba.html
 ---
 **Ceník terapií a masáží platný od 10.5.2022 :**
 
-* Masáž celého těla, nebo dle domluvy 60´-90´/ 1200,-
+Masáž celého těla, nebo dle domluvy 60´-90´/ 1200,-
 
-  1700,- s harmonizací za pomoci kříšťálových mís 90´
+1700,- s harmonizací za pomoci kříšťálových mís 90´
 
-**Konzultace, terapie, sezení 1000,-/1200 ,- / hodina/ a půl**
+Konzultace, terapie, sezení 1000,-/1200 ,- / hodina/ a půl
 
-**Konzultace na dálku, přes zoom či jinou platformu dle domluvy 850,- hodina, hodina a čtvrt**
+Konzultace na dálku, přes zoom či jinou platformu dle domluvy 850,- hodina, hodina a čtvrt
 
 _Protože jsem velmi intenzivně napojena na zvířata, tak pokud máte ,,problémové,, zvíře, nemocné bez příčin ,nebo si nerozumíte, tak Vám ráda poskytnu informaci , proč, jak dál a co se zvířátkem. Zvířata a děti na mne reagují nejlépe , protože se cítíme v čistotě duší a na energetické úrovni._
 
