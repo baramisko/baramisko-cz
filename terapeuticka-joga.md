@@ -10,7 +10,7 @@ permalink: terapie-lecba.html
 
   1700,- s harmonizací za pomoci kříšťálových mís
 
-**Konzultace, terapie, sezení 1300 ,- / hodina a půl**
+**Konzultace, terapie, sezení 1100/1300 ,- / hodina/ a půl**
 
 V ceně máte vždy nápoj, olej na míru a doporučení , co dál :)
 
