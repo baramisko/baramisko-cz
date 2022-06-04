@@ -7,7 +7,7 @@ order: "50"
 ---
 **_Aktuálně :_**
 
-Pozor změna , akce Hovory s tělem kontra duše a hrmonizace zvukem je sjednocena na 24.6. od 16:30 za cenu 400,-, můžete přijít i po páté hodině, scházet se budeme ale od  půl. Jógovna Frenštát, Kyčera na ochozu bílé dveře naproti obuvi.
+_Pozor změna , akce Hovory s tělem kontra duše a hrmonizace zvukem je sjednocena na 24.6. od 16:30 za cenu 400,-, můžete přijít i po páté hodině, scházet se budeme ale od  půl. Jógovna Frenštát, Kyčera na ochozu bílé dveře naproti obuvi._
 
 ![](/uploads/srdecne-vas-zvu-na-setkani-pred-prazdninami-page0001.jpg)
 
