@@ -14,8 +14,6 @@ _Hledám příčiny až do hloubky._
 
 _Všem lidem s kterými jsem se kdy setkala se obrátil život ,už jen tím,že jsme se našli, v dobrém slova smyslu :)_
 
-![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
-
 Každé sezení je zakončeno ochranou.
 
 Výklad karet, na dálku, mailem či v rámci sezení nebo masáže
