@@ -8,7 +8,7 @@ permalink: terapie-lecba.html
 
 Masáž celého těla, nebo dle domluvy 75´/ 1200,-
 
-1700,- s harmonizací za pomoci kříšťálových mís 90´
+1500,- s harmonizací za pomoci kříšťálových mís 90´
 
 Konzultace, terapie, sezení 1000,-/1200 ,- / hodina/ a půl
 
