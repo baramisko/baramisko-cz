@@ -6,9 +6,9 @@ permalink: terapie-lecba.html
 ---
 **Ceník terapií a masáží platný od 10.5.2022 :**
 
-* Masáž celého těla 60´/ 1100,-, 90 ´/ 1200,-
+* Masáž celého těla, nebo dle domluvy 60´-90´/ 1200,-
 
-  1700,- s harmonizací za pomoci kříšťálových mís
+  1700,- s harmonizací za pomoci kříšťálových mís 90´
 
 **Konzultace, terapie, sezení 1100/1300 ,- / hodina/ a půl**
 
