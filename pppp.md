@@ -4,7 +4,9 @@ title: Masáže a terapie
 order: "20"
 
 ---
-_Nabízí masáže podle principu nejen ajurvédy, ale také tlaková masáž, reflexní prvky a odstranění bolesti kloubů a svalů._
+_Nabízím masáže podle principu nejen ajurvédy, ale také tlaková masáž, reflexní prvky a odstranění bolesti kloubů a svalů._
+
+_Mé masáže jsou formou několika technik a vždy se domluvíme individuálně, co kdo potřebuje._
 
 _Můj životní příběh mne dovedl až na takové změny, že jsem se rozhodla, je předávat s pokorou dále._
 
