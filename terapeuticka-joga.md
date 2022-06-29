@@ -8,6 +8,8 @@ permalink: terapie-lecba.html
 
 Masáž celého těla, nebo dle domluvy  900,- -1200,-. 60´-90´
 
+( masáž zahrnuje i reflexní terapii plosek nohou, masáž zad, šíje, ramen, dolních a horních končetin )
+
 Konzultace, terapie, sezení 1000,- první hodina.
 
 Konzultace na dálku, přes zoom či jinou platformu dle domluvy 850,- hodina, hodina a čtvrt.
