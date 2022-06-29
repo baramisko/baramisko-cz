@@ -5,6 +5,10 @@ permalink: kontakt.html
 order: "100"
 
 ---
+**_Odkaz na e- shop s aromaterapií :_**
+
+www.selafee.cz
+
 ### Stačí i sms, opětovně se ozvu zpátky
 
 * emailem na <a href="mailto:Bara.Nyja@seznam.cz"> akyja.nyja@seznam.cz </a>
