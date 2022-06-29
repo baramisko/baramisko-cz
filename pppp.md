@@ -37,11 +37,3 @@ _Moje práce zasahuje do všech rovin, jak emočních těl, tak fyzických a vš
 _Hledám příčiny až do hloubky._
 
 _Všem lidem s kterými jsem se kdy setkala se obrátil život ,už jen tím,že jsme se našli, v dobrém slova smyslu :)_
-
-Každé sezení je zakončeno ochranou.
-
-Výklad karet, na dálku, mailem či v rámci sezení nebo masáže
-
-Tarot, Cikánské karty, orákulum, práce s kyvadlem
-
-Dle domluvy
