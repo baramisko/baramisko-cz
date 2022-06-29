@@ -21,7 +21,7 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Úzkostné a psychosomatické projevy u dětí a mládeže_
 * _Poruchy příjmu potravy_
 * _Práce s dětmi z pěstounské péče_
-* _Ajurvédská masáž_
+* _Ajurvédská masáž_ 
 * _Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti_
 * _Jóga lektor - Hatha, Asthanga, Terapeutická....viz._
 
