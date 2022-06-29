@@ -4,6 +4,8 @@ title: Pro tělo a duši
 order: "20"
 
 ---
+_Nabízí masáže podle principu nejen ajurvédy, ale také tlaková masáž, reflexní prvky a odstranění bolesti kloubů a svalů._
+
 _Můj životní příběh mne dovedl až na takové změny, že jsem se rozhodla, je předávat s pokorou dále._
 
 _Pracuji s emocemi, tělem, duší, v úrovni jemnohmotné až regresivní práce._
