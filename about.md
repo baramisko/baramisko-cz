@@ -5,6 +5,8 @@ permalink: bara-nyja.html
 order: "100"
 
 ---
+**_E-shop s aromaterapií : www.selafee.cz_**
+
 _Přála bych si, abyste u mne nalezli to ,co vyzařuje mé srdce a duše, ostatní slova jsou zbytečná._
 
 ![](/uploads/img_20220303_180155_420.jpg)
@@ -26,7 +28,7 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti_
 * _Jóga lektor - Hatha, Asthanga, Terapeutická....viz._
 
-   _www.joga-frenstat.cz_
+  _www.joga-frenstat.cz_
 * _A mnoho hodin sebepráce, seberozvoje, meditace a napojení se zpátky na zdroj_
 
 ### **_Intuice jako nástroj pomocný_**
