@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Pro tělo a duši
+title: Masáže a terapie
 order: "20"
 
 ---
