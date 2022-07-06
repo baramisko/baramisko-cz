@@ -8,6 +8,10 @@ _Nabízím masáže podle principu nejen ajurvédy, ale také tlaková masáž, 
 
 _Mé masáže jsou formou několika technik a vždy se domluvíme individuálně, co kdo potřebuje._
 
+**_Nabízím harmonizaci zvukem, za pomoci křišťálových mís, zvonkoher a tibetských mís, pouze ležíte a necháte na sebe působit vibrace , které nám pronikají až do buněk těla._**
+
+**_Zvuk uvolňuje tlak, napětí, bolest, strachy a různé bloky až do regresivních vzorců - jemně ale velmi účinně a bezpečně_**
+
 _Můj životní příběh mne dovedl až na takové změny, že jsem se rozhodla, je předávat s pokorou dále._
 
 _Pracuji s emocemi, tělem, duší, v úrovni jemnohmotné až regresivní práce._
@@ -21,7 +25,7 @@ _Z kurzů a výcviků jsem absolvovala:_
 * _Úzkostné a psychosomatické projevy u dětí a mládeže_
 * _Poruchy příjmu potravy_
 * _Práce s dětmi z pěstounské péče_
-* _Ajurvédská masáž_ 
+* _Ajurvédská masáž_
 * _Léčitelství, bylinkářství, studium kmenových a rodových linií, astrologie, vzácné kameny a spiritualita - sebeučení a různí terapeuti_
 * _Jóga lektor - Hatha, Asthanga, Terapeutická....viz._
 
